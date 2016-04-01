@@ -76,3 +76,46 @@ I smiled.  "I'll behave.  Promise."
 
 I took the little boy from her hands and sat back down on my seat with the magazine in our laps and we pointed out pictures.  He was pretty good at finding even tiny little letters in the print.  A smart kid.
 
+She started fixing her things again and then looked up at me and her son with what I could only explain as fear I had left with her son.  I smiled at her to reassure her but I doubted that would work.  She spoke to me a few moments after going back to her work.  "Stella, and that's Aidan."
+
+I nodded.  "A pleasure.  I'd offer you my hand but it seems both of them are rather occupied."  Aidan had taken to moving my hands to open and close the magazine and he was giggling softly to himself.
+
+Stella giggled herself and sat down across from us and watched her son play.  I spent the greater part of my wait tending to the squirming child in my lap.  I missed Jace's kids.  I was glad that he was picking me up when I landed.  It would be good to see JJ and Naya.
+
+A woman, who was clearly a stewardess, came over to us and looked at me.  "Would you like to board first?"
+
+I looked up and was surprised to see Cindy - a regular flight attendant on other trips out of town just not usually to New York.  She frowned and then smiled.  "I didn't know you had a son."
+
+I laughed.  "I don't.  This is her son.  I don't want to sit on that death trap any longer than I already have to." I looked across the floor to Stella, "Do you want to get on first?  I'm pretty sure she meant to ask you."
+
+Stella looked up at her.  "No, we'll board when he does, he's rather helpful."
+
+I laughed. The stewardess smiled sweetly at me.  "Alright, sweetie.  I'll see you on board."  She winked at me. 
+
+Stella was staring at me.  "Friend of yours?" she asked.
+
+I shrugged.  "A girl I slept with."
+
+"So you really are that playboy? You weren't just being nice to an older woman."  She sounded like that was a bad thing.
+
+"At least you know what you get."  I said with my inflated ego voice.
+
+Stella rolled her eyes at me as the intercom called the first rows.  "Why didn't you want to get on early?  It'd have been easier."
+
+"Afraid of flying.  I'm putting it off as long as I can. So my anxiety doesn't spike prematurarly."
+
+Stella laughed, "Does that happen often?"
+
+Oh I liked her.  I grinned at her.  "No.  I make sure they are satisfied before hand."
+
+The rose color of her embarrasment rushed to her face and she took Aidan from my hands and sniffed his bottom then wrinkled her nose.  I laughed.  "That's sexy."
+
+And I was rewarded with a deepening red as she sat her son in her lap trying to look all casual like.  But she didn't try to speak.
+
+I winked at her.  "Come on, let's get on the plane so you can change him."
+
+Standing up I grabbed her things and mine but Stella hesitated.  "But.."
+
+"I'll be fine."  I offered her a hand up with a grin.  She took it carefully adjusting her son to her hip.  Her hand was warm and I could smell the sweet scent of roses as she drew near.  Aidan didn't smell like he needed to be changed to me, but then again I wasn't focusing on that.  It must be a mother thing.  
+
+Stella had our three tickets in her hands and I had everything else except Aidan and we stood impatiently in line to get on the stupid flying death trap they called an airplane.  I really hated airplanes.
