@@ -144,11 +144,11 @@ I shrugged.  "Whatever."
 
 "Twice.  Once when I was 18 when my father was introduced to me and the second time a few months later when she died."  My mother had been hunting a werebear and I was assigned the task to find it on my own and kill it.  It was part of my first hunt with my handler. My mother didn't want to give up the job so she came with us and insisted we do it her way.  So she was the first one in the werebear's cave and the first one attacked.  
 
-She suffered massive injure to her chest and I received a rake to the chest before I was able to kill it.  We rushed my mother to the Boulder infirmary but she'd been bitten.  And the disease that makes a human a were creature tore my mother apart.  I watched her suffer from through the window in the door because she refused my presence in her room.  I watched her die hating me.  
+She suffered massive injuries to her chest and I received a rake to the chest before I was able to kill it.  We rushed my mother to the Boulder Infirmary but she'd been bitten.  And the disease that makes a human a were creature tore my mother apart.  I watched her suffer through the window in the door because she refused my presence in her room.  I watched her die hating me.  
 
 Stella tapped my arm.  "You did it again.  You okay?"
 
-I nodded.  "Yeah bad memories."
+I nodded.  "Yeah, bad memories."
 
 Stella squezed my arm, "I'm sorry for your loss."
 
