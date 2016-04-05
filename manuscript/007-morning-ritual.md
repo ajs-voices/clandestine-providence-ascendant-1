@@ -71,4 +71,122 @@ She handed me one of Jaces from the nearby closet.  "No problem.  It wasn't your
 
 They at least beleived me to a degree.  What I would tell them anyway.  Neither of them were happy I never told them exactly what was going on.  But I couldn't bring myself to say it much less say it outloud.
 
-I pulled the shirt over my head and went into Mia's kitchen.  If one thing was for sure Mia had a great kitchen.  She had a grill right in the middle and I would have loved to cook a steak on it, but that wasn't on the menu for today.
+I pulled the shirt over my head and went into Mia's kitchen.  If one thing was for sure Mia had a great kitchen.  She had a grill right in the middle of her stove top and I would have loved to cook a steak on it, but that wasn't on the menu for today.  The kids wanted pancakes, eggs and bacon when I was over.  They were still in bed right now.
+
+I made breakfast from scratch - well I didn't cure the bacon or fetch the eggs, but the pancakes I made from scratch.  It was one of my own special recipes.  It was healthier than regular pancakes but don't tell the kids that or they'd have your head.
+
+I started a pot of coffee which was a brand new unopened package of a high end coffee that I knew Mia and Jace only bought cause I was here.  It was one of the few things I splurged on even in the wilderness.  They had already ground it which was disapointing but the smell was awesome.  I couldn't wait to have a cup of it.
+
+I started with the batter and got it all mixed up.  Mia had all the ingredients but then she had wanted me to cook too so I knew she would.  Jace and Mia's kitchen was set up perfectly - at least while I was around.  I had a habit of putting things in their places even if they weren't there before.  That was one of my annoying compulsions.  I didn't like disorganized things so I tended to fix them.  I wasn't a neat freak.  It wasn't dirt or dust that bothered me.  Just things out of place.  But I wasn't complex enough to have patterns or such in things.  Just order.  I was thankful my compulsions didn't push the OCD patterns.  No counting things that drop or washing my hands 100 times.  
+
+I started the bacon in the oven on a rack and then started flipping pancakes.  The first few were messy as it had taken me a few tries to get my groove.  I hadn't made pancakes since I was here last and that was over a year ago.
+
+I started hearing sounds coming from the hallway as the kids started to wake up and get ready for school.  At one point JJ was screaming and running down the hall butt naked.  I pointed at the hallway he'd come from and he sulked and turned around the other way and back into his bedroom to finish changing.  
+
+Naya was sitting at the kitchen table watching me flip pancakes.  She was a spitting image of her mother.  Which was a good thing she didn't need to take after Jace.  But she was unlike anyone in her family - quiet and shy and completely reserved.  Not an ounce of showoff in her, which made me wonder what had gotten into her with the little girl in the elevator.  "Hey Naya."
+
+She looked over at me as I started making the scrambled eggs in the frying pan.  "Yeah Uncle Nox?"
+
+"Why did that girl bother you so much?"  I flipped another pancaked and Naya grinned as it landed with a soft splat.  
+
+"She's always picking on me.  Says I'm ugly.  Says I'm stupid."
+
+I sighed.  The last pancake was done and the eggs were starting nicely.  I beckoned her to me with a single finger and she came over and wrapped her arms around my waist and pressed her head into my stomach.  I patted her back.  "Naya."  I lifted her little chin and saw a small stream of tears.  "Oh Naya, baby.  You aren't ugly.  You are a beautiful little girl, just like your Mama.  And you aren't stupid.  And anyone who's calling you names is only jealous.  Baby, you are the greatest little girl I know."
+
+I turned back towards the eggs careful of Naya's arms around me and finished the eggs.  I called down the hall, "Breakfast is on."
+
+I looked down at Naya.  "Set the table please."
+
+She skipped away, and I hoped that what I had said helped and didn't make the whole boyfriend thing worse.
+
+Mia came out searching under things and in corners.  "Naya you seen JJ's shoes?"
+
+She shook her head.  "No ma'am.  He hide them again?"
+
+I started looking around and found a pecicular weave hiding behind the potted plant.  "Mia they are in the corner."
+
+I called out, "Hey JJ.  Come here man."
+
+He ran towards me in his stocking feet and tried to slide but the carpet in the livingroom didn't allow him to do that.  "Did you hide your shoes?"
+
+He looked down at the floor and nodded his head.  "Why?"
+
+"So I didn't have to go to school."
+
+I lifted his chin to look at me as I knelt down.  "Are you using magic on purpose?"
+
+"What?  No.  I don't know any magic.  Except the light you taught me."  JJ produced a no heat dim little light orb above his hand.  
+
+"You sure that's all you know?"
+
+He nodded emphatically.  "Okay I'm going to show you a veil.  But you can't used it to hide things.  If I find out you are doing it on purpose I will have your daddy take away everything in your room and you'll only have a bed to sleep in and clothes in your drawers and closet.  Okay?"
+
+He nodded.  "Yes sir.  No hiding things with this veil."
+
+"Particularly your school things.  Do you understand?"
+
+He nodded again.  "Pinky swear."  He held out his pinky and we shook on it.
+
+I crafted a hidden pattern that JJ could see.  He was a fast learner so I did it slowly and wrapped it around Mia's end lamp table.  It vanished from sight.  JJ's mouth fell open in an O and said, "Cool!"
+
+I undid the pattern and it came back unharmed.  I could explain the mechanics behind it but a four year old wasn't going to understand the idea of bending light.
+
+JJ tried the weave and managed to hide half the lamp and he giggled.  
+
+"Looks like you can only do small things.  The weave will eventually wear off but you cannot do it to anything on purpose do you understand me.  And if they find your shoes under another veil after this remember nothing in your room."
+
+"Even my night light."
+
+I nodded.  "Even your night light."
+
+He nodded as Mia sat him down on the couch and helped him tie his shoes.  She smiled at me.  "Thanks.  Hopefully that will help."
+
+I nodded.  "Hopefully."
+
+While their family ate I slipped in Jace and Mia's bathroom and grabbed a shower.  Mia came in while I was pulling on the pair of dress pants that I was going to wear.  "You weren't hungry."
+
+"I'll eat small before I go.  Don't need to have too much in my stomach."  
+
+I turned to the mirror and started applying the eyeliner under my eyes and Mia giggled.  "I knew you used eye liner."  She rummaged through my toiletry bag, "That's all."
+
+I grinned.  "My lipstick is in the other bag."
+
+She laughed as Naya giggled behind her mom's leg.  "Uncle Nox do you really weare lipstick?"
+
+"No ma'am.  Well I have.  But it's not a regular occassion.  And usually only when I really pushing the gay pride thing."
+
+Mia smacked my arm.  "Nox.  She doesn't need to know that."
+
+"Know what, that I like boys."
+
+Naya giggled, "Mommy I know that already."
+
+Mia shook her head.  "No, the gay pride thing - we don't diferentiate between sexual preferces."
+
+I laughed.  "I wonder why."  I stuck my tongue out at Mia.
+
+But it was Naya who commented.  "Because Daddy likes men too.  But he likes Mommy the most."
+
+"He does at that."  I agreed.
+
+Mia gave me that look that said I was wrong, but she didn't say anything with her daughter present.  It was really the only bad blood between us.  But it had only made us closer so not really bad blood.
+
+I pulled on my dress shirt as Mia left and Naya stood in the doorway watching me.  "Uncle Nox, what are all those scars."
+
+"Which ones?" I asked as I buttoned my shirt.  She came over and ran her fingers across my chest.  "Those are from a were bear that killed my mother.  He tried to kill me too."
+
+"But he didn't.  I'm glad."
+
+"Me too." I agreed.
+
+I picked her up and sat her on the sink and started tying my tie.  She took it deftly in her hands and finished for me.  I watched her in the mirror and she did it perfectly.  I was impressed.  "Your dad let you do that for him?"
+
+She laughed.  "Daddy can't tie a tie."
+
+Jace must let her do it all the time because I know he can tie a tie, he has helped me on a number of occassions when my fingers were too shakey to be of use.
+
+She wrapped her arms around me and rubbed my back.  The healing marks were still tender and I froze under her touch.  She smiled up at me.  "I'm sorry someone hurt you."
+
+I grinned at her.  "It's alright hunny.  I'll survive.  I promise."  And I would.  It was everything I could do to survive my nightmares and fears and I would not let them beat me down.
+
+But right now my biggest fear was two hours away and I hadn't even looked over my notes since the plane.
