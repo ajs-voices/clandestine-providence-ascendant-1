@@ -2,7 +2,7 @@
 
 Mia took the elevator and I went with her in the plate glass elevator.  She wasn't even tall enough that I could easily hide my fears against her body like I did with her husband.  But she wrapped her arm around my waist and leaned her body against mine - a comforting support hug.  I adored Mia.  She took care of me better than Jace did.  I was more than happy when Jace finally popped the question.
 
-We'd known Mia for years upon years.  She was a year younger than us in the Academy and she ran in the same circle as us outside in the human world.  She like me was raised by the community.  Her parents were from way out west - hawaii and couldn't live in New York as they ran the island's Venatori contingent.  And who wants to give up their post when your daughter becomes Magnus.  She didn't spark, but the ability came young and she's been her two years less than Jace and I.
+We'd known Mia for years upon years.  She was a year younger than us in the Academy and she ran in the same circle as us outside in the human world.  She like me was raised by the community.  Her parents were from way out west - Hawaii and couldn't live in New York as they ran the island's Venatori contingent.  And who wants to give up their post when your daughter becomes Magnus.  She didn't spark, but the ability came young and she's been her two years less than Jace and I.
 
 She used to hate me.  Which meant she hated Jace.  That was until we ran into her in the same forbidden circles of the human world doing things her parents wouldn't be proud of.  We struck up a friendship and she of all things asked Jace out.  I was never jealous - Mia was never more than a friend to me.  Though we had shared a few moments of pleausre together though the circumstances were not something that we discussed at all.  
 
@@ -30,7 +30,7 @@ She didn't walk to me - she ran the few steps it took to get to me and jumped in
 
 The toddler aged children were another cooridor over and JJ was happily playing with his friends until his mother gave a little whistle and his ears perked up.  His head lifted over the half wall separating the toys from the classroom and he hurriedly put his toys away when he saw me holding his sister.  If there was anything that boy hated it was sharing hugs with me.  
 
-JJ didn't even bother with a Hi Mom as Naya had. he walked straight up to me.  He punched me in the thigh and Mia scolded him.  "We do not hit Jason Hill Junior.  You know this, even if it is Uncle Nox and he deserves it."
+JJ didn't even bother with a Hi Mom as Naya had. He walked straight up to me.  He punched me in the thigh and Mia scolded him.  "We do not hit Jason Hill Junior.  You know this, even if it is Uncle Nox and he deserves it."
 
 She winked up at me.  "Now because of that you don't get to see him until we get home."
 
@@ -50,15 +50,15 @@ Naya scrambled down from my embrace and stood a little under that little girl.  
 
 The little girl asked Naya, "Is this the boyfriend you are always talking about?"
 
-I raised my eyebrow and Naya blushed.  But she didn't confirm nor deny the fact.  Not good.  What had she been saying.  I looked to Mia and she mouthed, "This is your fault."
+I raised my eyebrow and Naya blushed.  But she didn't confirm nor deny the fact.  Not good.  What had she been saying?  I looked to Mia and she mouthed, "This is your fault."
 
 I sighed and nodded.  It was.  I flirted with Naya as I flirted with everyone else.  Mia and Jace hadn't said anything when she was younger and once she got older it was difficult to stop.  I would fix this though.
 
 The little girl continued to bully Naya.  "Isn't he a little old for you, what's he like 20?"
 
-Twenty was old?  Damn kids these days.  Naya was about to say something when I put my hand on her shoulder.  I knelt down and was eye level with both the girls.  "I'm twenty -nine thank you very much.  And I'm not Naya's boyfriend.  I'm her uncle."  I waved my hand in front of the girls and a small ball of fire winked into existance.  The little girl paled.
+Twenty was old?  Damn, kids these days.  Naya was about to say something when I put my hand on her shoulder.  I knelt down and was eye level with both the girls.  "I'm twenty -nine thank you very much.  And I'm not Naya's boyfriend.  I'm her uncle."  I waved my hand in front of the girls and a small ball of fire winked into existance.  The little girl paled.
 
-Naya spoke, "I told you he was good."  She sounded more cocky than I did.  Naya waved her hand like had and a smaller version of the fireball winked into existance above her palm.  "I have the best tutor in the world."
+Naya spoke, "I told you he was good."  She sounded more cocky than I did.  Naya waved her hand like I had and a smaller version of the fireball winked into existance above her palm.  "I have the best tutor in the world."
 
 The little girl stammered and sputtered.  "Mine is better."
 
@@ -104,7 +104,7 @@ She looked hurt and I didn't blame her I had no tact.  Jace put his hand on his 
 
 My heart sank.  He knew all too well the feeling of loving me without my feelings returned in the same way.  When we were younger Jace had wanted more.  More than just the friendship we had shared.  More than the shared experiences.  More than I could give him.  He was my brother, my family.  My only connection to the world that made life worth living.  He eventually understood why I couldn't be more.
 
-Mia put her hand on my waist and guided me towards their car.  She walked slower tan the others, Jace had taken JJ and my bag from her and was walking at a rather fast pace with Naya chattering away at him about what I'd done.  Mia spoke softly, "He understands yu know?"
+Mia put her hand on my waist and guided me towards their car.  She walked slower than the others, Jace had taken JJ and my bag from her and was walking at a rather fast pace with Naya chattering away at him about what I'd done.  Mia spoke softly, "He understands yu know?"
 
 I nodded.  "I know, but it doesn't hurt any less for either of us."
 
@@ -112,7 +112,7 @@ Mia sighed, "If you'd been with him, Nox.  He wouldn't be with me - not ever."
 
 "I know that too.  You are one reason.  I'm the main one though."  I sighed.  "I do love him.  And it's not that I'm not attracted to him."
 
-"He knows.  You come up often after you've been gone along time.  And not during sex or afterwards.  Just randomly he'll curl up against his pillow away from me.  And when I ask him what's wrong - he just misses you.  Misses having you around.  You are staying for a while right?"  Mia sounded concerned, "He really needs you."
+"He knows.  You come up often after you've been gone a long time.  And not during sex or afterwards.  Just randomly he'll curl up against his pillow away from me.  And when I ask him what's wrong - he just misses you.  Misses having you around.  You are staying for a while right?"  Mia sounded concerned, "He really needs you."
 
 I nodded.  "That's the plan."  I stopped and turned towards Mia.  "I want to start my own family.  I want what ya'll have."
 
@@ -144,7 +144,7 @@ The kids ran inside carrying my bags and Mia followed them inside.  "Dinner will
 
 We both nodded, "Yes ma'am" I said and Jace shook his head.
 
-"You really shouldn't teach my kids that stuff."  Jace sighed, "JJ's already doing things we thing he saw from you."
+"You really shouldn't teach my kids that stuff."  Jace sighed, "JJ's already doing things we think he saw from you."
 
 "Like what?"
 
@@ -158,7 +158,7 @@ I grinned at him.  "I can help with that.  I doubt he knows what he's doing.  It
 
 Jace nodded.  "You didn't specifically show him did you?"
 
-I shook my head.  "Not on purpose anyway." I removed personal veil I usually kept up and Jace nodded.  "Something I do out of habit."
+I shook my head.  "Not on purpose anyway." I removed my personal veil I usually kept up and Jace nodded.  "Something I do out of habit."
 
 Jace sighed, "I don't know why you just don't get those scars taken care of."
 
@@ -170,7 +170,7 @@ Jace shook his head.  "I don't know why not.  Everyone who's seen them would lov
 
 "It's like 50 out."  Jace called after me shutting the cargo door in the SUV.
 
-"I can fix that remember."
+"I can fix that, remember?"
 
 I went for a swim and the kids splashed around in the pool with me.  Dinner was roasted chicken covered in herbs and a decadant lemon sauce with mashed sweet potatoes and a healthy serving of wild rice.  One of my favorite dishes Mia knew how to cook.  We chatted through dinner - school projects, me being home indefinately.  Mia offered me a place on her couch whenever I wanted.
 
