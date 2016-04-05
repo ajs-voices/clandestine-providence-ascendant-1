@@ -1,4 +1,4 @@
-# Family Time
+# Proposition
 
 I dropped my gear off in my crap room.  It was a simple studio apartment layout with a small kitchenette, with two person table, a tv on the wall and a queen sized bed.  Everything in the room was beige - the most boring color in the world.  I had called Jace and he said he'd meet me here.  He wanted to know what happened, but I didn't want to talk about it. 
 

@@ -4,3 +4,4 @@
 004-hotel-penn.md
 005-proposition.md
 006-family-time.md
+007-morning-ritual.md
