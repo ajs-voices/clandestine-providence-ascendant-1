@@ -118,7 +118,7 @@ I rolled my eyes.  She ran her fingers under my eyes, "I mean you do wear make u
 
 Again I rolled my eyes.  She had manuevered herself to her knees and was too close.  And the look in her eyes said more than words every could.  And I had enjoyed her touching me.  All day she had been touching me and I had enjoyed her soft rose scent and her warm touch.  I missed the touch of others.  I had been out in the field too long alone.
 
-A small sigh escaped as her fingers played with the hair behind my ear.  She was flirting and she knew the reaction she was getting from me.  I said in a low husky voice filled with the lust I was feeling, "I don't do relationships."
+A small sigh escaped as her fingers played with a fringe of dyed-red hair over my left eye.  She was flirting and she knew the reaction she was getting from me.  I said in a low husky voice filled with the lust I was feeling, "I don't do relationships."
 
 She whispered, "I know," in my ear.  I could feal her silky breath on my skin.
 

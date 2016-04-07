@@ -149,15 +149,15 @@ While their family ate I slipped in Jace and Mia's bathroom and grabbed a shower
 
 I turned to the mirror and started applying the eyeliner under my eyes and Mia giggled.  "I knew you used eye liner."  She rummaged through my toiletry bag, "That's all."
 
-I grinned.  "My lipstick is in the other bag."
+"My lipstick is in the other bag."  I grinned and ran my fingers through my red tipped hair.  I probably should have dyed them back that out.  There was notime for that now.  
 
-She laughed as Naya giggled behind her mom's leg.  "Uncle Nox do you really weare lipstick?"
+She laughed as Naya giggled behind her mom's leg.  "Uncle Nox do you really wear lipstick?"
 
 "No ma'am.  Well I have.  But it's not a regular occassion.  And usually only when I really pushing the gay pride thing."
 
 Mia smacked my arm.  "Nox.  She doesn't need to know that."
 
-"Know what, that I like boys."
+"Know what? that I like boys."
 
 Naya giggled, "Mommy I know that already."
 

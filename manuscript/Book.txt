@@ -7,4 +7,5 @@
 007-morning-ritual.md
 008-fear-of-heights.md
 009-crushes.md
-
+010-being-myself.md
+011-fire-and-bombs.md

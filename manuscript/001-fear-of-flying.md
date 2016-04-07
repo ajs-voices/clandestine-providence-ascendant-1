@@ -8,9 +8,9 @@ In front of him was a small redhead toting around a toddler.  The toddler wasn't
 
 The look the small redhead gave him mimicked my thoughts exactly _How rude!_ but I didn't say anything either.  I stood behind her and watched as she struggled with the little man and he refused to be put down and she couldn't hold him.  I asked, "Do you need some help?"
 
-The woman shook her head.  "I got this."
+The woman looked up and frowned then shook her head.  "I got this."  She looked back down to fiddle with her son's shoe.  I'm sure she was reacting to my outer apperance, the t-shirt under a hoodie with holey jeans that were all the rage.  I'm sure the eye liner and red tips in my hair that hung over my right eye didn't help matters either.  I probably looked like some wanna-be goth emo kid to her.  But I couldn't help but chuckle at the irony because she clearly did not have this.  
 
-I couldn't help but chuckle at the irony because she clearly did not have this.  "Are you sure?"
+I asked. "Are you sure?"
 
 She nodded.  "Yeah."  But she didn't sound very convincing.
 
