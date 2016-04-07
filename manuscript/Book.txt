@@ -5,3 +5,6 @@
 005-proposition.md
 006-family-time.md
 007-morning-ritual.md
+008-fear-of-heights.md
+009-crushes.md
+
