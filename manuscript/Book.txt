@@ -15,3 +15,4 @@
 015-a-fellow-firestarter.md
 016-the-jump.md
 017-always-the-same.md
+018-incomplete-puzzles.md
