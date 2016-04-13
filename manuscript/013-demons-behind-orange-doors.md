@@ -96,6 +96,6 @@ He laughed. "I will make sure your calendar is free.  If Dae'lin is to be beleiv
 
 I nodded.  "Have to be."
 
-Dorian paused for several moments I could almost see the smoke coming out of his ears as he thought about something.  I was taken by surprise when he leaned in and kissed me softly on the lips.  He tasted better than he smelled and I was lost in those few seconds as our lips were pressed together.  When he pulled away he was smiling and I bit my bottom lip.  His smile only grew wider.  I was breathless.  Dorian took a step back. "I will see you again very soon, Nox."
+Dorian paused for several moments I could almost see the smoke coming out of his ears as he thought about something.  He looked like he was searching my face for some answer.  I wanted to kiss him - to taste his lips.  I swallowed hard as the desire started to over come me.  He gave me a lazy smile and whispered softly, "I will see you again. Very soon, Nox."
 
-I could only nod.  Dorian chuckled as he left.  I stood staring after him.  I don't know how long I stood there before the worst possible thing that could happen to me happened - Garrett Spencer walked into the room and locked the door behind him.
+I could only nod, my own desires leaving me breathless.  Dorian chuckled as he left.  I stood staring after him.  I don't know how long I stood there before the worst possible thing that could happen to me happened - Garrett Spencer walked into the room and locked the door behind him.

@@ -12,3 +12,6 @@
 012-pumpkin-pie.md
 013-demons-behind-orange-doors.md
 014-the-demon.md
+015-a-fellow-firestarter.md
+016-the-jump.md
+017-always-the-same.md

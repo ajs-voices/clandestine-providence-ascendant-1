@@ -16,9 +16,9 @@ We parked in lower parking garage and I hated it worse than most places in the A
 
 Jace and his family headed for the elevator as I hefted my bags on my shoulder.  They stood waiting for the elevator and I couldn't make myself do it right now.  My stomach was already doing flips and I was anxious about everything happening today I didn't need more.  "I'm going to take the stairs."
 
-Jace nodded.  "I'll take your bags to your room so you can go straight there then."
+Jace nodded.  "I'll take your bags to your room so you can go straight there then.  Stop by the class if you can I want them to meet you."
 
-I nodded and handed him my bags taking the folder of notes from my backpack.  "Thanks, man."
+I nodded and handed him my bags taking the folder of notes from my backpack.  "Thanks, man.  I'll try."
 
 The elevator dinged and I watched as my only family went in and turned around and the little ones waved good-bye.  I hated leaving them even though I intended to stay here and they'd be in my life more now.  It still hurt watching them leave.
 
