@@ -8,7 +8,7 @@ Nox Sétanta is a little known yet "improbable" half-human Venatori hunter who i
 
 ## The Dawning
 
-Scenes 1 - 19
+Scenes 1 - 21
 
 ## Terror
 
