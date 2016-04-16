@@ -1,4 +1,4 @@
-# Incomplete Puzzles
+## Incomplete Puzzles
 
 I watched him set the laptop up and fire it up without a problem until the password screen flashed on.  He looked to me and waited for me to type it in.  I handed Dorian a card and pointed to a set of words on it.  "All lowercase no spaces."
 

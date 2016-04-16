@@ -1,4 +1,6 @@
-# Fear of Flying
+# Part I: The Dawning
+
+## Fear of Flying
 
 My flight out of Denver International Airport was early but not too early at least not for me.  By the time most people's alarm clocks were going off I was already up, had a quick work out and was showered.  I had a light breakfast - completely not my usual thing consisting of cereal and milk - a sugared cereal at that.  It was all the free Continental breakfast had at this early hour that I would eat.  There was plenty of food just nothing I was overly fond of.  Things like pastries and donuts or other sugary type foods.  
 

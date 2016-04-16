@@ -1,4 +1,4 @@
-# Always the Same
+## Always the Same
 
 Dorian's lips pressed against mine.  I could feel his body pressed against me.  His teeth grazed my lips and our tongues entwined.  Time fled me as I was embraced in the warmth and comfort of that kiss unable to do anything else not that I wanted to anyway.  Dorian pulled away and pressed his forehead against mine and I stared into his deep blue eyes - my heart racing for all the right reasons for a change.  Dorian whispered, "I wanted to do that then."
 

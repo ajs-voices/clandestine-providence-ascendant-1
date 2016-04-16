@@ -1,4 +1,4 @@
-# Best Friend
+## Best Friend
 
 The landing made me sweat and my heart race as it always had, but Stella's warm hand on mine helped keep the worst of the panic attack away.  Thoughts of my mother were never good.  We waited until the plane was nearly empty before we got stood up and started gathering our things.  Aidan had passed out.  "I'll help you get to your car."
 

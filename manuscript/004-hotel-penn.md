@@ -1,4 +1,4 @@
-# Hotel Penn
+## Hotel Penn
 
 We chatted on the short route to the LIE and on our way into the city.  I asked, "Where did they put you up?"
 

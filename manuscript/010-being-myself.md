@@ -1,4 +1,4 @@
-# Being Myself
+## Being Myself
 
 I took a deep breath and walked out on to the stage and stood behind the podium and then looked out over the crowd.  I saw Dae'lin standing near the closed double doors in the back and Dorian was walking down the aisle to th empty seat in the front row that said 'Reserved - Dorian Vega'.  His own personal front row seat.  I could see his small smile and a nod of his head as I watched him.  He was pushing me onward and upward.
 

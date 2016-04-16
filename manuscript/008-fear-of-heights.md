@@ -1,4 +1,4 @@
-# Fear of Heights
+## Fear of Heights
 
 Jace drove into New York and I sat in the back with the kids again.  They chattered at me and distracted me from the upcoming events that were making butterflies leap in my stomach.  I hadn't managed to grab anything to eat but Naya thought for me and picked up a few peices of bacon and pancakes for me.  She said the eggs were too messy for the car.  I nibbled at the pancakes and gave the kids the bacon to share between them.  
 

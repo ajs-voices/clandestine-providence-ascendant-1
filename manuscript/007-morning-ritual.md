@@ -1,4 +1,4 @@
-# Morning Ritual
+## Morning Ritual
 
 My night started as any other - darkness.  The darkness filled with a red eire glow as my demons approcahed in the depths of my mind.  I could feel the tension rising.  I felt the air around me thicken as I was pushed against the wall that had not been there before.  
 

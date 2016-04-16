@@ -1,3 +1,5 @@
+## Fire and Bombs
+
 I didn't get far before the blaring of the firealarm startled me and sent a sharp spike through my body.  It was a gut reaction but I was already walking towards the siren.  Not away like everyone else.  Most people abandoned the building when the fire alarm went off.  But each alarm in the AU building was unique.  There was a normal fire alarm that belched out four short burst then a small pause before repeating itself.  It said there was a fire and it needed you to evacuate immediately.
 
 But this wasn't that type of alarm.  When you run an academy for young magnus there was always the off chance that one of them could spark accidentally.  The five bursts were unique to a firestarter started fires and the bursts directly following it indicated the floor, then a small pause told you which wing and area it was in.  The building was laid out in a grid.  To the uneducated it sounds like a normal fire alarm so humans were left to evacuate - only those who lived here really understood the subtle differences.

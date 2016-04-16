@@ -18,3 +18,5 @@
 018-incomplete-puzzles.md
 019-accidents-happen.md
 020-all-the-peices.md
+021-the-chase.md
+022-rise-and-fall-of-nightmares.md

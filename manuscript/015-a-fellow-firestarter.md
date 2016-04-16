@@ -1,4 +1,4 @@
-# A Fellow Firestarter
+## A Fellow Firestarter
 
 I was still running my fingers through my hair straigtening it out.  Dorian was watching me.  I asked him, "What?"
 

@@ -1,4 +1,4 @@
-# Accidents Happen
+## Accidents Happen
 
 We went the long way to the gym.  I'm not sure if Dorian was prolonging it or if he was just letting me wander, but it doesn't really matter.  I stopped at the door to the gym and stepped aside as someone was exiting.  Dorian kissed me good-bye there were no words just the soft press of his lips and his teeth biting softly into my lip before he parted with a wink.  "Remember stop by when you are done."
 
@@ -95,4 +95,4 @@ Dorian smiled.  "You have a habit of saving my life, you know that?"
 
 "It's worth it."  I grinned at him.  I was feeling sleepy.  
 
-Dorian started humming softly and I started to sink deeper into sleep.  I started to ask what they did to me but I was gone before the first word hit my mouth, but I could hear the soft melody I had hummed to Dorian earlier and between that and the soft scent of vanilla and cinaomon I drifted off into a near dreamless sleep.
+Dorian started humming softlyand I started to sink deeper into sleep.  I started to ask what they did to me but I was gone before the first word hit my mouth, but I could hear the soft melody I had hummed to Dorian earlier and between that and the soft scent of vanilla and cinaomon I drifted off into a near dreamless sleep.

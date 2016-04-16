@@ -1,4 +1,4 @@
-# The Demon
+## The Demon
 
 I swallowed hard.  I lost all feeling in my body.  I was amazed I was still standing after my reaction.  But I stood frozen as I would have as a five year old child I had been so long ago when I'd seen the man last.  I had done everything possible in every trip and every year in the Academy to avoid this man and he was intruding on my safe moment.  My heart started to race.  I could feel my palms sweating in my clenched fists.  
 
