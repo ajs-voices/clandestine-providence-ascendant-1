@@ -50,13 +50,13 @@ So I did the next best thing.  I grinned at Dorian and sucked the air from my lu
 
 * * *
 
-The darkness left and I started hearing a voice that I remembered and a small smile splayed on my face.  "He's never been suicidal before."  The soft voice of Margo's receptionist spoke in a hushed whisper.
+The darkness left and I started hearing a voice that I remembered and a small smile splayed on my face.  "It's been 15 years since he last tried."  The soft voice of Margo's receptionist spoke in a hushed whisper.
 
 "Are you sure?  He did that on purpose."  Dorian!
 
 I opened my eyes and sat up, my head hurt.  Megan turned to look at me.  "Nox what did you do?  Mr. Vega here is certain is was more than lack of food."
 
-I gave him a lazy grin.  "Sorry.  Yes Megan.  I did it on purpose.  It was a combination fo lack of food but mostly lack of oxygen.  There was a mob of people wanting to talk to me, I didn't think I could handle more people than I had already dealt with today."
+I gave him a lazy grin.  "Sorry.  Yes Megan.  I did it on purpose.  It was a combination of lack of food but mostly lack of oxygen.  There was a mob of people wanting to talk to me, I didn't think I could handle more people than I had already dealt with today."
 
 Dorian was frowning at me.  "So you fake fainting?  You don't have to suck the oxygen from your lungs like that.  I would have caught you either way."  
 
@@ -76,7 +76,7 @@ Dorian chuckled but it faded quickly and he frowned.  "Please don't do that agai
 
 I nodded.  "Okay.  I panicked."
 
-Dorian held a finger up to stop me from speaking I bit into the apple again to show him I understood.  I wasn't quite so showy with the rest of apple.  Dorian let me finished eating the apple before he offered me the bottle of water and a napkin.  I took both and wrapped the apple core in the napkin.  Dorian held out his hand and I laughed.  "i can through it away."  
+Dorian held a finger up to stop me from speaking I bit into the apple again to show him I understood.  I wasn't quite so showy with the rest of apple.  Dorian let me finished eating the apple before he offered me the bottle of water and a napkin.  I took both and wrapped the apple core in the napkin.  Dorian held out his hand and I laughed.  " can through it away."  
 
 He nodded.  "I know.  I got it."
 

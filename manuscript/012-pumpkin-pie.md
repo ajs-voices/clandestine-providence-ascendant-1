@@ -10,7 +10,7 @@ When we reached ground level Dorian opened the exterior door and it was like the
 
 I grinned at him.  "What's the fun in that?  This is closer."
 
-We walked across the street waiting for the crossing single of course, but we still almost got ran over by an errant cabby making an illegal turn.  His fare must be precious.  There was a small hole in the wall dinner around the corner from the Apex building.  Dorian looked at me with concern.  I smiled.  "Trust me."
+We walked across the street waiting for the crossing signal of course, but we still almost got ran over by an errant cabby making an illegal turn.  His fare must be precious.  There was a small hole in the wall dinner around the corner from the Apex building.  Dorian looked at me with concern.  I smiled.  "Trust me."
 
 I opened the door from him and Dorian stepped through with the tinkling bell.  A hearty welcome was shouted from behind the counter.  I stepped in behind Dorian and let the door close behind me.  Dorian took only a few steps inside and I walked into him.  I enjoyed the feel of the length of him against my chest and thighs.  "It's okay, they don't bite."  I whispered, "Not unless you want them to."
 
@@ -138,7 +138,7 @@ We didn't speak at all while I enjoyed the pumpkin pie.  I could feel Dorian's e
 
 He smiled when my eyes met his.  "Just watching you enjoy."
 
-I put on my best cocky grin and leaned forward so I whispered so only Dorian could hear.  "I'm sure there are more fun things I let you watch me enjoy."
+I put on my best cocky grin and leaned forward so I whispered so only Dorian could hear.  "I'm sure there are more fun things I could let you watch me enjoy."
 
 Dorian's face turned a shade of red I didn't think possible as he looked down.
 
@@ -208,9 +208,9 @@ I looked down at my plate and moved the peices of steak around on my plate befor
 
 Dorian was still standing and I looked down at my plate.  "More means more.  Not just sex.  Not a romp in the sheets.  I want other things than I did when I was home last.  Or here ever.  But my past is full of shit like this Dorian.  If that fact makes you uncomfortable, it's probably best it doesn't go father then this."
 
-Dorian turned and walked away.  I watched him but he didn't go to the door he want into the kitchen and I could here him and Bonnie talking and Alfredo chiming in every so often but I couldn't make out what they were saying.
+Dorian turned and walked away.  I watched him but he didn't go to the door he want into the kitchen and I could hear him and Bonnie talking and Alfredo chiming in every so often but I couldn't make out what they were saying.
 
-I fought the urge to curl up in a ball like I used to do when I was a little boy and be the frightened kid who used to come here and wait for his friend to show up.  I had wanted everything.  He didn't tell me to say that.  I wanted to be loved.  I know that know.  And I know it was abuse and I was a victim.  I know that now.  But Dorian didn't give me a chance to explain myself.
+I fought the urge to curl up in a ball like I used to do when I was a little boy and be the frightened kid who used to come here and wait for his friend to show up.  I had wanted everything.  He didn't tell me to say that.  I wanted to be loved.  I know that now.  And I know it was abuse and I was a victim.  I know that now.  But Dorian didn't give me a chance to explain myself.
 
 When Dorian returned my plate was clean and my glass was empty.  He sat down, he looked calmer and he started eating.  I leaned against the wall and put my feet on the bench and tried not to pull my knees to my chest.  I wanted to.  It was comforting.
 
@@ -224,7 +224,7 @@ Dorian spoke softly.  "Bonnie explained."
 
 "Why?"  I could feel the judgement in his voice.
 
-I looked up at Dorian and slammed my feet on the floor and hit my knee in the process.  "Because it was the closest fucking thing I had to love at the time.  Dylan had beaten the shit out of me two weeks prior for kissing him.  My mother left me with a fucking pschyopath and my father could give a flying fuck about me.  I was feeling rejected, and just plain depressed.  He was nice to me.  He helped me through a difficult time.  He was the first man I had sex with."
+I looked up at Dorian and slammed my feet on the floor and hit my knee in the process.  "Because it was the closest fucking thing I had to love at the time.  Dylan had beaten the shit out of me two weeks prior for kissing him.  My mother left me with a fucking pschyopath and my father could give a flying fuck about me.  I was feeling rejected, and just plain depressed.  He was nice to me, and it was better than slitting my wrists.  He helped me through a difficult time.  He was the first man I had sex with."
 
 "Nox.  He raped you."
 
@@ -236,7 +236,7 @@ I felt the sting of tears in my eyes.  Rejection.  I turned and leaned back agai
 
 "What do you want?"  Dorian's voice was calm and caring and he sounded like he really wanted to know.
 
-I stared out past the end of the both watching Dorian from the corner of my vision.  He was sitting again and watching me.  I felt the first tear fall.  And before I knew it more were falling.  I wiped angrily at my tears with the back of my hands  Black lines smeared across my hands.  I was going to look like a freak show after this.  Dorian stood up and sat down on my bench and picked up my legs and placed them over his and he moved closer.  His hand touched my cheek and he wiped away the tears.  "Why does that question make you cry?"
+I stared out past the end of the booth watching Dorian from the corner of my vision.  He was sitting again and watching me.  I felt the first tear fall.  And before I knew it more were falling.  I wiped angrily at my tears with the back of my hands  Black lines smeared across my hands.  I was going to look like a freak show after this.  Dorian stood up and sat down on my bench and picked up my legs and placed them over his and he moved closer.  His hand touched my cheek and he wiped away the tears.  "Why does that question make you cry?"
 
 I looked down and closed my eyes.  But Dorian lifted my chin with his fingers and wiped away the tears and cleaned the smeared make under my eyes.  I grinned at him.  I didn't want to tell him the answer to either question but I did anyway.  "I want my own family."  It was just a hoarse whisper but I told him my deepest desire. "I want to be safe and loved and wanted."
 
@@ -262,7 +262,7 @@ Dorian looked at me and stared like he was seeing an alien.  I looked away I did
 
 Dorian asked, "What do you mean?"
 
-I put my legs back over the bench properly and turned my back to Dorian.  I pulled the dress shirt from the back of my pants and lifted it to show Dorian.  "Technically it was ability that did that.  He made me hurt myself.  He beat me in my head everyday until I hurt him back."
+I put my legs back over the bench properly and turned my back to Dorian.  I pulled the dress shirt from the back of my pants and lifted it to show Dorian.  "Technically it was my ability that did that.  He made me hurt myself.  He beat me in my head everyday until I hurt him back."
 
 "A dreamwalker?"
 

@@ -28,7 +28,7 @@ He smiled at me.  "Your candor."
 
 "My candor?"  Being honest.. I was slightly confused.
 
-Dorian whispered softly in my ear.  I could feel his warm breath against my neck and it sent shivers down my spine.   "You beared your soul to me.  I can do the same."  Those words made more sense to me than him telling me straight out.  Dorian Vega was always perferct.  He had perfect grades.  His clothes were always perfectly pressed.  His hair always perfectly kept.  In all things Dorian was perfect.  His image was everything.  He was tarnishing his image to bear his soul to me - to show the world that yes, I'm gay.
+Dorian whispered softly in my ear.  I could feel his warm breath against my neck and it sent shivers down my spine.   "You bared your soul to me.  I can do the same."  Those words made more sense to me than him telling me straight out.  Dorian Vega was always perferct.  He had perfect grades.  His clothes were always perfectly pressed.  His hair always perfectly kept.  In all things Dorian was perfect.  His image was everything.  He was tarnishing his image to bear his soul to me - to show the world that yes, I'm gay.
 
 The elevator dinged and  people piled on the elevator with us, I started to step away once I heard the sound of the door opening but Dorian was firm in his embrace and I didn't push too hard to stay close to him.  I felt his arm tensing and I could see the patterns shifting around him.  He was nervous.  I hummed a little tune under my breath in Dorian's ear.  The song was a comfort to me when I was anxious.  I found myself humming it a lot.
 
@@ -36,7 +36,7 @@ We finally got to the Academy levels and got out and headed down the halls towar
 
 "A dragon's lullaby my Nanny use to sing to me.  I've forgotten the words and never knew the name, but it's always been a comfort to me."
 
-Dorian smiled.  "It was nice."  We arrived at one of the first available fire starte room and the orange painted door was closed but said it was vacant.  I stared at the color that I could tolerate except for painted on a flat metal door.  Dorian opened the door and I was frozen.  It had been years since I'd stepped foot in one of these rooms.
+Dorian smiled.  "It was nice."  We arrived at one of the first available fire starter room and the orange painted door was closed but said it was vacant.  I stared at the color that I could tolerate except for painted on a flat metal door.  Dorian opened the door and I was frozen.  It had been years since I'd stepped foot in one of these rooms.
 
 "Everything alright?"
 
