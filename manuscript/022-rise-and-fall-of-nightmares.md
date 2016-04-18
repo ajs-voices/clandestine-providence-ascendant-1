@@ -140,7 +140,7 @@ I crossed my arms and frowned.  "I'm done talking since no matter what I say is 
 
 "Yeah.  You beleive me but as usual you have too little power."
 
-She sighed.  "Dr. Eliot will be in to see you in a moment.  He will give you the offical ruling and will be your doctor in the interim.  I've been found unreliable."
+She sighed.  "Dr. Wilton will be in to see you in a moment.  He will give you the offical ruling and will be your doctor in the interim.  I've been found unreliable."
 
 I asked, "Why?"
 
@@ -148,13 +148,13 @@ Margo looked at me with sadness.  "I've been dating your father for the past thr
 
 "It figures.  Why not have my motherly figure fucking my father."
 
-She slapped my face and I could feel the blooming hand print.  "That is uncalled for.  I will forgive you this one - act a child again and you and I will terminate this relationship."
+She slapped me hard and I could feel the blooming hand print against my cheek.  "That is uncalled for.  I will forgive you this one - act a child again and you and I will terminate this relationship."
 
 I looked down.  "I'm sorry."
 
 "Really?"
 
-"Yes, ma'am.  I shouldn't have said that.  My anger got the best of me.  I'm not angry at you.  Or my father just another thing to deal with."  I rolled over on to my side with my back facing her, "I'd rather be left alone now."
+"Yes, ma'am.  I shouldn't have said that.  My anger got the best of me.  I'm not angry at you.  Or my father. Just another thing to deal with."  I rolled over on to my side with my back facing her, "I'd rather be left alone now."
 
 Margo put her hand on my shoulder and I had the urge to jerk it away but I hurt just rolling over so I didn't bother.  "Two more doctors and you can see Dorian."
 
