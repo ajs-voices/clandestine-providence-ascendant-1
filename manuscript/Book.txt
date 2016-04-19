@@ -22,3 +22,5 @@
 022-rise-and-fall-of-nightmares.md
 023-doctors.md
 024-relocation.md
+025-confessions.md
+026-little-blue-pill.md
