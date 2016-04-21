@@ -24,3 +24,4 @@
 024-relocation.md
 025-confessions.md
 026-little-blue-pill.md
+027-the-little-werewolf.md

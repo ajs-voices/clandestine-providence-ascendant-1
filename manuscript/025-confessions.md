@@ -133,8 +133,8 @@ I nodded.  "Yes, a few times, but I was 16.  It was more of a final test than an
 
 "Why not me specifically?"  Dorian asked.
 
-I smiled weakly at him, "Because my feelings are so strong for you that I would have hurt you the most because you could hurt me the most."  I leaned back against the ed and stared up at the camera watching us.  "I have wanted you since we were kids.  Saving you was one of my better days.  The feel of your hand in mine when you helped me up.  The way you looked soaked in mud and grime it still tugs deep down inside.  I'd forgotten how I felt about you until I saw you when I came out of the elevator.  And everytime you kiss me or touch me now I can't help but want to have more of it."
+I smiled weakly at him, "Because my feelings are so strong for you that I would have hurt you the most because you could hurt me the most."  I leaned back against the bed and stared up at the camera watching us.  "I have wanted you since we were kids.  Saving you was one of my better days.  The feel of your hand in mine when you helped me up.  The way you looked soaked in mud and grime it still tugs deep down inside.  I'd forgotten how I felt about you until I saw you when I came out of the elevator.  And everytime you kiss me or touch me now I can't help but want to have more of it."
 
-Dorian's hands reached around my neck and he pulled me forward and kissed me.  My heart raced and my body ached for him.  Whe he pulled away he smiled.  "I will do my best not to hurt you, Nox.  I can't promise you I will succeed because relationships aren't something I'm good at.  At certainly, I'm not good at being in this place in a relationship where I have never been before either."
+Dorian's hands reached around my neck and he pulled me forward and kissed me.  My heart raced and my body ached for him.  When he pulled away he smiled.  "I will do my best not to hurt you, Nox.  I can't promise you I will succeed because relationships aren't something I'm good at.  And certainly, I'm not good at being in this place in a relationship where I have never been before either."
 
 I smiled, "We'll learn together."
