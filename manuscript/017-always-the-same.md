@@ -137,7 +137,7 @@ Ms. Shiela turned the color her hair used to be.  "Ain't nothin.  Ifin ya want y
 
 I nodded.  "Yes ma'am.  I will."
 
-I made my way to the checkout counter grabbing a bottle of water from the cooler.  I reached for my wallet where my stupid meal card was but the man at the counter smiled and said, "We have you covered for this meal Mr. Sétanta, courtesy of the conference, courtesy of the conference."
+I made my way to the checkout counter grabbing a bottle of water from the cooler.  I reached for my wallet where my stupid meal card was but the man at the counter smiled and said, "We have you covered for this meal Mr. Sétanta, courtesy of the conference."
 
 "Okay.  Thanks then".  I saw Dorian sitting at a table with others on the end of it.  I took a deep breath and walked towards him.  I could deal with them if they bothered me.  And I expected they would bother me - they always did.
 
@@ -169,7 +169,7 @@ I stood up and smiled down at the muscular black man who was nearly a foot short
 
 "Hi Aaron.  So glad of you to join us."
 
-I saw Dorian from the corner of my eye, he was pretending to mind his own business like everyone else in the cafeteria.  Like everyone always did in the cafeteria.
+I saw Dorian from the corner of my eye, he was pretending to mind his own business like everyone else in the cafeteria.  
 
 Aaron placed his hands on my chest and I wove an wall of air behind me faster than he could push me backwards.  I was immovable, but I could feel his strength pushing into my rib cage. I could feel them cracking under his massive strength but he stopped as I could feel the air leaving my chest.  He always was a punk.  He always did the same thing.  He can at me with a right hook and I easily ducked underneath it with a leg swipe I assisted with a bar of air and Aaron fell flat on his back.  I had to say something.  I just had to.  "You'd think you'd have learned some different moves in these past ten years Aaron."
 
