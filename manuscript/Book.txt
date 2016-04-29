@@ -30,3 +30,4 @@
 030-confessions.md
 031-one-last-night.md
 032-you-did-what.md
+033-spending-the-night.md
