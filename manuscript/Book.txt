@@ -30,4 +30,5 @@
 030-confessions.md
 031-one-last-night.md
 032-you-did-what.md
-033-spending-the-night.md
+033-dinner-with-dorian.md
+034-fire-starter.md
