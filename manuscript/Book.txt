@@ -32,3 +32,6 @@
 032-you-did-what.md
 033-dinner-with-dorian.md
 034-fire-starter.md
+035-little-lessons.md
+036-punching-bag-for-dad.md
+037-pre-dinner-gitters.md
