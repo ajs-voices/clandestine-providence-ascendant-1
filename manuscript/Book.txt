@@ -37,3 +37,4 @@
 037-pre-dinner-gitters.md
 038-dinner-with-the-demon.md
 039-that-night-and-the-next-morning.md
+040-day-of-bliss.md
