@@ -70,7 +70,7 @@ Dorian smiled and walked towards the kitchen and handed me a glass of water.  "I
 
 "Ah.  What is it you do Todd?"
 
-He smiled at me with a prefectly white smile and brown eyes that light up when he looked at us.  "I'm a genetisist."
+He smiled at me with a prefectly white smile and ice blue eyes that light up when he looked at us.  "I'm a genetisist."
 
 "And you came to Dorian for what?"  I asked.
 
@@ -100,7 +100,7 @@ Dorian laughed.  "Yeah.  We both agreed with him.  Except he didn't tell you any
 
 Todd nodded.  "I think that I will leave the two of you alone."
 
-Dorian walked Todd to the door and I leaned back against Dorian's couch and took in the scents with my eyes closed.  I felt Dorian standing infrot of me.  I opened my eyes and he was looking down at me with a glass of wine touching his lips.  I took his hand and pulled him down into my lap.  He sat facing me his legs on either side of me and an arm wristing on the couch back behind me and the other holding his wine glass with elegance.
+Dorian walked Todd to the door and I leaned back against Dorian's couch and took in the scents with my eyes closed.  I felt Dorian standing in front of me.  I opened my eyes and he was looking down at me with a glass of wine touching his lips.  I took his hand and pulled him down into my lap.  He sat facing me his legs on either side of me and an arm resting on the couch back behind me and the other holding his wine glass with elegance.
 
 "How are you doing love?"
 

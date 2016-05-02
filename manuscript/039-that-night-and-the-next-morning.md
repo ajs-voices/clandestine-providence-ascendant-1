@@ -4,13 +4,13 @@ I pulled Dorian closer to me and  smiled up at him, "But I want to forget that f
 
 I took the glass from Dorian's hand and set it on the floor and lifted Dorian to the couch and I laid on top of him.  I kissed him had and one of his hands found the back of my neck and the other clutched at my shirt.  
 
-Our bodies were hard against one another, I could taste the wine on his lips.  The feel of his teeth and tongue againstt my neck made me shake.  I wanted nothing more than to feel his body against mine.  Dorian bit my neck softly before he whispered against it, his breath sending shivers up my spine.  "We aren't teenagers."  He sat up manuerving me into his lap easily.  "The bed has far more room and way more comfortable."
+Our bodies were hard against one another, I could taste the wine on his lips.  The feel of his teeth and tongue against my neck made me shake.  I wanted nothing more than to feel his body against mine.  Dorian bit my neck softly before he whispered against it, his breath sending shivers up my spine.  "We aren't teenagers."  He sat up manuerving me into his lap easily.  "The bed has far more room and way more comfortable."
 
 I stood up and he followed me up but I followed him to his room.  Dorian took his phone from his pocket and turned it off.  He took mine form me and did the same setting them both on the night stand.  He whispered, "No interruptions this time."
 
-My body ached for him.  He stood before and pulled my t-shirt over my head and undid his own buttons as I reached inside and pushed it off of him.  we kissed and touched and explored each other's bodies long before we were lying on the bed, Dorian on top of me and I could want nothing more than him.  
+My body ached for him.  He stood before me a dark light in his eyes and pulled my t-shirt over my head and undid his own buttons as I reached inside and pushed it off of him.  We kissed and touched and explored each other's bodies long before we were lying on the bed, Dorian on top of me and I could want nothing more than him.  
 
-Our bodies were tangled around each other and with the blankets below us long before the night was over and we were both panting and sweating in the glow of estasy.  I drifted into nothingness naked lying half on top of Dorian.  My fingers entwined in his at my back ad the other tracing the edge of the tattoo that ran the complete half of his body.  
+Our bodies were tangled around each other and with the blankets below. Before the night was over we were both panting and sweating in the glow of estasy.  I drifted into nothingness naked lying half on top of Dorian.  My fingers entwined in his at my back and the other tracing the edge of the tattoo that ran the complete half of his body.  
 
 ***
 
@@ -96,4 +96,4 @@ I nodded.  "Yep."  I turned to his mother with a bright smile.  "It's a pleasure
 
 "Sounds wonderful."
 
-"I will see you at dinner tomorrow night mother."  Dorian wrapped his arm under mine and headed towards the exit.  "What shall we do?"
+"I will see you at dinner tomorrow night Mother."  Dorian wrapped his arm under mine and headed towards the exit.  "What shall we do?"
