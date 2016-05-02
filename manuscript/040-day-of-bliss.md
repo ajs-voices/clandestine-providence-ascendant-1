@@ -116,4 +116,4 @@ Dorian smiled. "You love me?"
 
 I looked down and laughed before I looked up at him with a smile. "You heard that huh?"  I stepped forward put my hands on Dorian's wrists and kissed him softly.  "I love you Dorian."
 
-He was beaming at me as he put his hand on my waist and turne dme to walk to the vampire who was paitently waiting for our public display of affection to end.
+He was beaming at me as he put his hand on my waist and turned me to walk to the vampire who was paitently waiting for our public display of affection to end.
