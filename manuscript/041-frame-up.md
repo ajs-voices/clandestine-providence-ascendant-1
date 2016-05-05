@@ -1,12 +1,12 @@
 ## Frame Up
 
-Ant was the classing tall, dark and handsome.  His build was that of a weight lifter and his t-shirt didn't quite fit under the leather jacket he wore.  Dorian whispered, "He's cute."
+Ant was the classi tall, dark and handsome.  His build was that of a weight lifter and his t-shirt didn't quite fit under the leather jacket he wore.  Dorian whispered, "He's cute."
 
 I laughed, "You know he can hear you right?"
 
 Dorian blushed slightly.  "No I didn't."
 
-Ant offered his hand to Dorian.  "Ant Giovanni.  I didn't exptect Nox to bring his ... boyfriend?"
+Ant offered his hand to Dorian.  "Antony Giovanni.  I didn't exptect Nox to bring his ... boyfriend?"
 
 I smiled.  "We were spending the day together, didn't want to end it because you called.  This is Dorian Vega."
 
@@ -46,13 +46,13 @@ His pout grew deeper and Ant smacked him up side the head.  "Act your age."
 
 From the echos of the shadows a voice echoed in the tunnel.  "Boys all of you behave."
 
-"Bernstein.  Why have you called me here with these two numbskulls?"
+I knew that voice. "Bernstein.  Why have you called me here with these two numbskulls?"
 
 Dorian's jaw dropped.  "You know the Bernstein vampire.  Our fathers..."
 
-Bernstein stepped out in a long trenchcoat that fell nearly to his ankles, his hair was dark and pulled back at the nape of his neck.  I knew it ran to nwell past his waist.  "Your father's are the reason I call upon you, Venatori."
+Bernstein stepped out in a long trenchcoat that fell nearly to his ankles, his hair was dark and pulled back at the nape of his neck.  I knew it ran to well past his waist.  "Your father's are the reason I call upon you, Venatori."
 
-"You know my name."
+"You know my name." I said flatly.
 
 He stepped out his dark brown eyes were nearly black in the dim light.  "Because I requested you and you came I will oblige.  Nox.  Your father is hunting me and mine."
 
@@ -106,7 +106,7 @@ Dorian smiled.  "He was being a perfect gentleman though his tales are a little 
 
 "That's a neat trick."  Dorian said in awe.
 
-"It's a gut wrenching experience."  I took Dorian's hand in mine.  "What did he tell you."
+"It's a gut wrenching experience."  I took Dorian's hand in mine.  "What did he tell you"
 
 "Marco was regailing a tale of your first encounter.  An eleven year old boy standing up for a 20 something girl who was renigging on a deal."
 
