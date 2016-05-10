@@ -114,6 +114,6 @@ I asked, "What?"
 
 I smiled.  "We can share our bed Dorian.  At least long enough to meet our obligations.  I have more than enough suitors, I'm sure we could reach an agreement for you as well."
 
-Dorian was the same color his mother had turned at the same general comment I'd made to her.  He shook his head.  I got up from the chair I'd been sitting in and pushed Dorian's chest and he laid back, his head propped up on the wall behind him as I sat on his hips and placed my hands under his arm pits and leaned down close enough to kiss him and spoke "We can make this work in all ways Dorian."
+Dorian was the same color his mother had turned at the same general comment I'd made to her.  He shook his head.  I got up from the chair I'd been sitting in and pushed Dorian's chest and he laid back, his head propped up on the wall behind him, his hands behind his head, as I sat on his hips and placed my hands under his arm pits and leaned down close enough to kiss him and spoke "We can make this work in all ways Dorian."
 
 Dorian leaned up and caught my bottom lip between his teeth and bit softly and a small moan left my mouth as he kissed me.  Our mouths were the only things we were touching, our tongues dancing inside exploring and eliciting small sounds from one another.  

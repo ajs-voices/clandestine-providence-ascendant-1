@@ -42,3 +42,5 @@
 042-the-art-of-persuasion.md
 043-more-confessions.md
 044-family-dinner-interrupted.md
+045-the-last-request-of-the-demon.md
+046-going-to-the-big-man.md
