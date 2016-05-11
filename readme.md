@@ -12,10 +12,10 @@ Scenes 1 - 21
 
 ## Part II: Terror
 
-Scenes 22 - ?
+Scenes 22 - 46
 
 ## Part III: Exiled
 
-Scenes ? - ?
+Scenes 47 - ?
 
 
