@@ -44,3 +44,5 @@
 044-family-dinner-interrupted.md
 045-the-last-request-of-the-demon.md
 046-going-to-the-big-man.md
+047-the-end-is-nigh.md
+048-back-to-the-old-ways.md
