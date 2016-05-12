@@ -46,3 +46,6 @@
 046-going-to-the-big-man.md
 047-the-end-is-nigh.md
 048-back-to-the-old-ways.md
+049-the-note.md
+050-the-good-doctor.md
+
