@@ -126,7 +126,7 @@ Her hand jerked away.  "I'm sorry."
 
 She shook her head and looked at me with horror on her face.  "He will pay, my love."
 
-"I am not your love.  But thank you.  I think I can handle a little weasel like him."  I finished getting dressed in silence.  Everything fit well I was surprised, though the pants were a little too loose, I'd lost so much weight.  I was going to be a skeleton after a few more months.  
+"I am not **your** love.  But thank you. And I think I can handle a little weasel like him."  I finished getting dressed in silence.  Everything fit well I was surprised, though the pants were a little too loose, I'd lost so much weight.  I was going to be a skeleton after a few more months.  
 
 I offered Elena my hand.  "Dinner?"
 
