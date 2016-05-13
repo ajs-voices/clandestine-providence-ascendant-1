@@ -51,5 +51,8 @@
 051-falling.md
 052-elena.md
 053-the-creed-of-celestial-beings.md
-054-a-real-little-boy.md
+054-trouble-brewing.md
+055-going-home.md
+056-a-real-little-boy.md
+057-a-new-life.md
 
