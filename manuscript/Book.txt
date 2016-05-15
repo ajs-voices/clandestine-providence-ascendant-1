@@ -55,4 +55,6 @@
 055-going-home.md
 056-a-real-little-boy.md
 057-a-new-life.md
+058-rogue-wolf.md
+059-jumping-the-ambush.md
 

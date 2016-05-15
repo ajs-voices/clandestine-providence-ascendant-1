@@ -94,5 +94,4 @@ Elena left my room with a princess wave and was down the stairs before Emily and
 
 Emily laughed.  "Ironically he's our mechanic.  You will be working for him.  He's getting up there in age and a young strapping man like yourself even with no experience will be a great amount of help.  And he'll teach you a thing or two."
 
-
 "I look forward to it."  I was starting to feel like a real little boy - I wondered if Pinocchio felt like this when he was turned into flesh.
