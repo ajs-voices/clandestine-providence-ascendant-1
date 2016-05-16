@@ -57,4 +57,5 @@
 057-a-new-life.md
 058-rogue-wolf.md
 059-jumping-the-ambush.md
+060-phoenix.md
 
