@@ -59,3 +59,5 @@
 059-jumping-the-ambush.md
 060-phoenix.md
 061-meeting-james.md
+062-gaining-traction.md
+063-moonlight-battle.md
