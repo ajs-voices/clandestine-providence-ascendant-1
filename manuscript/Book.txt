@@ -61,3 +61,5 @@
 061-meeting-james.md
 062-gaining-traction.md
 063-moonlight-battle.md
+064-overheard-quarrels.md
+065-leader-of-the-pack.md

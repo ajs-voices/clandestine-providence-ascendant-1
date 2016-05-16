@@ -14,11 +14,11 @@ Raf nodded again wanting to hang back.  "And if I don't we all get thrown out.  
 
 Jo added.  "If you don't challenge him, or he you, I imagine James will take care of it.  Even Adrian listens when James Wright tells him to do something."
 
-I sighed, "I go from one home to the next and I'm expected to kill her too."
+I sighed, "I go from one home to the next and I'm expected to kill here too."
 
 Raf lifted my hand to his heart.  "It is the way of the wolf.  Only the strongest survive.  You look weak because you can't shift.  You can't hold us in our natural states."
 
-"I didn't even know you could do that.  I could do that."
+"I didn't even know you could do that.  I didn't know **I** could do that."
 
 Raf smiled.  "You are so young yet so powerful.  Tonight is the full moon.  I want to watch with my human eyes as you defeat Paul.  Hold us tonight, Nox.  You have the power, just try."
 
@@ -44,7 +44,7 @@ I followed Paul into the game room where James happened to be talking to a very 
 
 I wasn't shy but I stepped up next to Paul and spoke clearly if not overly loud.  "Paul Shaffer I challenge you for leadership of your pack."
 
-I saw James smile from behind his glass of beer.  I heard the normal taunts from around the room, "Pretty boy's got balls."  "This should be easy, Paul's got him by shear muscle alone."  But I heard one voice stand out among the crowed, Elena laughed, "You haven't seen the pretty boy fight yet, have you."  She was mocking them and it made me smile.
+I saw James smile from behind his glass of beer.  I heard the normal taunts from around the room, "Pretty boy's got balls."  "This should be easy, Paul's got him by shear muscle alone."  But I heard one voice stand out among the crowd, Elena laughed, "You haven't seen the pretty boy fight yet, have you."  She was mocking them and it made me smile.
 
 James stepped up.  "Paul?"
 
@@ -76,13 +76,13 @@ The man stepped forward and yelled, "I challenge you."
 
 I smiled.  "Accepted."
  
-I started for my place on the circle but the man lunged forward with my back turned to him and I closed my eyes and wove a circle of air that he dove through and yanked at his neck and hung him before everyone else to see.  His neck snapped with the forcefullness of my weave and he hung limply before everyones eyes suspenced by nothing.  
+I started for my place on the circle but the man lunged forward with my back turned to him and I closed my eyes and wove a circle of air that he dove through and yanked at his neck and hung him before everyone else to see.  His neck snapped with the forcefullness of my weave and he hung limply before everyones eyes suspened by nothing.  
 
 The eyes of my pack lowered and their heads bent further towards the floor.
 
 James laughed.  "Not what I was expecting.  Are there anymore challenges?"  No one answered.  "Bury Paul honorably, Bret can rot with the fish."
 
-James clapped his arm around me and lead me up the stairs.  "And none of your followers changed when they lost Paul's connection.  You have impressed me young one."  He sat me down at the bar where Emily was crying softly into Michael's arms.  "Emily, your husband died honorably.  There is no thing to cry over.  Feed your Alpha I'm sure he's starving."
+James clapped his arm around me and lead me up the stairs.  "And none of your followers changed when they lost Paul's connection.  You have impressed me young one."  He sat me down at the bar where Emily was crying softly into Michael's arms.  "Emily, your husband died honorably.  There is nothing to cry over.  Feed your Alpha I'm sure he's starving."
 
 "Yes, James."
 
