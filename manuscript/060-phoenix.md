@@ -58,7 +58,7 @@ I spoke in a soft whisper, too afraid of my own voice, "There is nothing left."
 
 I turned and looked at him, "What do you mean?"
 
-"The Venatori think you are dead now - well and good.  Asher thinks it's a good idea to let them think that.  I have informed you were alright when I first arrived her.  He only laughed.  When he calmed down he told me to ask Ant to remove the memory of your survival.  To let me think you had died to make it beleivable.  They both gave me tonight to spend with you.  And I agree with them."
+"The Venatori think you are dead now - well and good.  Asher thinks it's a good idea to let them think that.  I have informed him you were alright when I first arrived here.  He only laughed.  When he calmed down he told me to ask Ant to remove the memory of your survival.  To let me think you had died to make it beleivable.  They both gave me tonight to spend with you.  And I agree with them."
 
 "So this is our last moments together?"
 
@@ -70,7 +70,7 @@ His phone beeped.  "That's Ant.  I have to go love."
 
 Dorian gave me one last kiss and smiled.  "Don't move on, Nox.  When it's over, all over, find me.  Tell me you love me and I will remember."
 
-I nodded and watched Dorian leave my bedroom door.  It felt like a hole being ripped through my heart.  I sat on my bed and I could feel the anxiety racing.  It wasn't long before Jo and Raf were helping me lie down and curling around me in my bed, it was barely big enough for me, much less three grown people, but somehow it worked and I drifted to sleep in a tangle of limbs thinking that I was going to drown in my sorrow.
+I nodded and watched Dorian leave my bedroom.  It felt like a hole being ripped through my heart.  I sat on my bed and I could feel the anxiety racing.  It wasn't long before Jo and Raf were helping me lie down and curling around me in my bed, it was barely big enough for me, much less three grown people, but somehow it worked and I drifted to sleep in a tangle of limbs thinking that I was going to drown in my sorrow.
 
 
 
