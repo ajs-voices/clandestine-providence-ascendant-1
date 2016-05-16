@@ -66,7 +66,7 @@ Kai turned on me with fury and raised an arm to throw a fireball at me.  "You tr
 
 "Call me all the names you like Father.  You will not start a war I can prevent.  Take your Venatori and hunt another night."  
 
-Kai threw a fireball which I let stop inches from my face with a wall of air.  "Dad,.."
+Kai threw a fireball which I let stop inches from my face with a wall of air.  "Dad,.." I started to say.
 
 "Don't call me that."  Kai yelled at me, "You are no son of mine."
 
