@@ -120,7 +120,9 @@ Standing up I grabbed her things and mine but Stella hesitated.  "But.."
 
 "I'll be fine."  I offered her a hand up with a grin.  She took it carefully adjusting her son to her hip.  Her hand was warm and I could smell the sweet scent of roses as she drew near.  Aidan didn't smell like he needed to be changed to me, but then again I wasn't focusing on that.  It must be a mother thing.  
 
-Stella had our three tickets in her hands and I had everything else except Aidan and we stood impatiently in line to get on the stupid, flying, death trap they called an airplane.  I really hated airplanes.  ## Distractions
+Stella had our three tickets in her hands and I had everything else except Aidan and we stood impatiently in line to get on the stupid, flying, death trap they called an airplane.  I really hated airplanes.  
+
+## Distractions
 
 I was afraid of flying, it wasn't the airplanes fault, or the pilots.  It was my mother's fault.
 
@@ -280,6 +282,8 @@ I shrugged.  "I'm not."
 
 I nodded.  "I do.  She hated me.  Even in the end she hated me.  I watched her die from the other side of the door because she wouldn't let me in to her room."  I shook myself just as the seat belt light went on and we started our decent.  Just what I needed as we landed - more fucking anxiety.
 
+
+
 ## Best Friend
 
 The landing made me sweat and my heart race as it always had, but Stella's warm hand on mine helped keep the worst of the panic attack away.  Thoughts of my mother were never good.  We waited until the plane was nearly empty before we got stood up and started gathering our things.  Aidan had passed out.  "I'll help you get to your car."
@@ -364,7 +368,9 @@ Aidan was groggy in my arms and laying his head against the crock of my neck and
 
 I grinned.  "I told you it's the relative age distance."
 
-She strapped Aidan in and I climb into the passenger side.  I had no problems letting a woman drive.  As long as I wasn't driving in New York City I was happy.## Hotel Penn
+She strapped Aidan in and I climb into the passenger side.  I had no problems letting a woman drive.  As long as I wasn't driving in New York City I was happy.
+
+## Hotel Penn
 
 We chatted on the short route to the LIE and on our way into the city.  I asked, "Where did they put you up?"
 
@@ -523,6 +529,8 @@ I took a card out of my wallet and set it on the table near the door.  "Call me 
 Stella looked up at me with tears in her eyes.  Fuck!  I hated crying, I was weak when girls cried.  But she smiled at me.  "I'd like that.  See ya round Nox."
 
 "See ya round, Stella."  I opened the door and hefted my things to my shoulder and I headed for the nearest stair well.  It was no where near time for Jace to pick me up.  I'd tell him I was stopping back at HQ and find my new room to stop by there.  But first I had to get as far away from the prickling fear that was chasing me down the stairs.
+
+
 ## Proposition
 
 I dropped my gear off in my crap room.  It was a simple studio apartment layout with a small kitchenette, with two person table, a tv on the wall and a queen sized bed.  Everything in the room was beige - the most boring color in the world.  I had called Jace and he said he'd meet me here.  He wanted to know what happened, but I didn't want to talk about it. 
@@ -609,7 +617,9 @@ Mia hugged me then stepped inside my room grabbed my bag and I picked up my duff
 
 Mia grinned back at me.  "Ditto.  I got dinner, you get breakfast."
 
-I nodded.  "Sounds like a deal".## Family Time
+I nodded.  "Sounds like a deal".
+
+## Family Time
 
 Mia took the elevator and I went with her in the plate glass elevator.  She wasn't even tall enough that I could easily hide my fears against her body like I did with her husband.  But she wrapped her arm around my waist and leaned her body against mine - a comforting support hug.  I adored Mia.  She took care of me better than Jace did.  I was more than happy when Jace finally popped the question.
 
@@ -787,7 +797,9 @@ I went for a swim and the kids splashed around in the pool with me.  Dinner was 
 
 The kids were sent to their rooms for homework and lessons and I went for a run. 
 
-By the time I got back the kids were in bed and Mia and Jace were settling in themselves.  I took a shower then laid down on the couch.  I had an early morning.  I wasn't looking forward to getting up in front of smart people to talk about my theories.  Theories I could only bet the would laugh at.## Morning Ritual
+By the time I got back the kids were in bed and Mia and Jace were settling in themselves.  I took a shower then laid down on the couch.  I had an early morning.  I wasn't looking forward to getting up in front of smart people to talk about my theories.  Theories I could only bet the would laugh at.
+
+## Morning Ritual
 
 My night started as any other - darkness.  The darkness filled with a red eire glow as my demons approcahed in the depths of my mind.  I could feel the tension rising.  I felt the air around me thicken as I was pushed against the wall that had not been there before.  
 
@@ -979,6 +991,8 @@ She wrapped her arms around me and rubbed my back.  The healing marks were still
 I grinned at her.  "It's alright hunny.  I'll survive.  I promise."  And I would.  It was everything I could do to survive my nightmares and fears and I would not let them beat me down.
 
 But right now my biggest fear was two hours away and I hadn't even looked over my notes since the plane.
+
+
 ## Fear of Heights
 
 Jace drove into New York and I sat in the back with the kids again.  They chattered at me and distracted me from the upcoming events that were making butterflies leap in my stomach.  I hadn't managed to grab anything to eat but Naya thought for me and picked up a few peices of bacon and pancakes for me.  She said the eggs were too messy for the car.  I nibbled at the pancakes and gave the kids the bacon to share between them.  
@@ -1045,7 +1059,9 @@ We rose up in side the elevator and I could feel my fluttering increase.  We bot
 
 I could feel the anxiety rising as the conference area on the next floor up neared closer.  I took the elevator that was slightly more offset from the first one, it was behind a key carded turn stile but in reality it was a supernatural gate.  Technology and magic combined to freely let the supernatural pass through, humans required a key card.
 
-I so wasn't ready for this.## Crushes
+I so wasn't ready for this.
+
+## Crushes
 
 The elevator doors opened on the conference floor and there was a crowd milling about outside of the closed double doors.  My heart beat fast as I stepped on to the hard wood floors and I could hear the soft clicking of the souls of my fancy dress shoes on the floor.  It sounded like I had a tack stuck in the bottom.  
 
@@ -1131,6 +1147,8 @@ Dorian held his hand out and ushered me out the door to the stage entrance.  He 
 
 I'm glad he had more confidence in me than I had in myself.  I was still not ready for this.
 
+
+
 ## Being Myself
 
 I took a deep breath and walked out on to the stage and stood behind the podium and then looked out over the crowd.  I saw Dae'lin standing near the closed double doors in the back and Dorian was walking down the aisle to th empty seat in the front row that said 'Reserved - Dorian Vega'.  His own personal front row seat.  I could see his small smile and a nod of his head as I watched him.  He was pushing me onward and upward.
@@ -1212,6 +1230,8 @@ I stood up and clapped my hands together in applause.  "Let's give our new fire 
 I closed with my contact information. I gave them my email address and Dae'lin's as well just in case.  "If you are interested in anything we've talked about today email me or Dae'lin and we'll schedule a time in the next few weeks to go over those topics on a one and one basis."
 
 I walked off the stage happier than I had been when I had started and I didn't make a fool of myself.
+
+
 
 ## Fire and Bombs
 
@@ -1338,6 +1358,8 @@ I grinned.  "Gay?"
 "Well thank you.  I know a little place not too far from here, if you want to join me for lunch.  I'm starving.  We can talk about what you asked me about and the scene upstairs."  I added quickly.  "That is if you have time.  You don't have to babysit me like Margo suggested."
 
 He smiled.  "I've got to eat too."
+
+
 
 ## Pumpkin Pie
 
@@ -1621,6 +1643,8 @@ I smiled.  "You said it was."
 "I remember."
 
 I took a sip of the coffee, it was as horrible as I remembered it to be.  I looked over at Dorian and wished this had gone better.  "I need to vent some of this anxiety."
+
+
 ## Demons Behind Orange Doors
 
 Dorian asked me, "What do you normally do?"
@@ -1721,7 +1745,9 @@ I nodded.  "Have to be."
 
 Dorian paused for several moments I could almost see the smoke coming out of his ears as he thought about something.  He looked like he was searching my face for some answer.  I wanted to kiss him - to taste his lips.  I swallowed hard as the desire started to over come me.  He gave me a lazy smile and whispered softly, "I will see you again. Very soon, Nox."
 
-I could only nod, my own desires leaving me breathless.  Dorian chuckled as he left.  I stood staring after him.  I don't know how long I stood there before the worst possible thing that could happen to me happened - Garrett Spencer walked into the room and locked the door behind him.## The Demon
+I could only nod, my own desires leaving me breathless.  Dorian chuckled as he left.  I stood staring after him.  I don't know how long I stood there before the worst possible thing that could happen to me happened - Garrett Spencer walked into the room and locked the door behind him.
+
+## The Demon
 
 I swallowed hard.  I lost all feeling in my body.  I was amazed I was still standing after my reaction.  But I stood frozen as I would have as a five year old child I had been so long ago when I'd seen the man last.  I had done everything possible in every trip and every year in the Academy to avoid this man and he was intruding on my safe moment.  My heart started to race.  I could feel my palms sweating in my clenched fists.  
 
@@ -1891,7 +1917,9 @@ We both got dressed and freshened up.  My make up was smeared beyond recovery.  
 
 I grinned at him.  "Thank you."
 
-Cleaned and fresh we left Dorian's apartment to go talk to this troubled boy.## A Fellow Firestarter
+Cleaned and fresh we left Dorian's apartment to go talk to this troubled boy.
+
+## A Fellow Firestarter
 
 I was still running my fingers through my hair straigtening it out.  Dorian was watching me.  I asked him, "What?"
 
@@ -2081,6 +2109,8 @@ Dorian watched me from the corner of his eyes.  I felt that tug to go to him and
 
 
 
+
+
 ## The Jump
 
 The doors opened going up and we waited for everyone to file off.  A smoker had just exited and I could smell nothing but tabacco smoke inside the elevator.  I held my breath.  Two triggers was not going to undo me.
@@ -2203,7 +2233,9 @@ I lay on the grass staring up at the swirling syphony and I started to hear a ma
 
 I heard the alley door open and I saw Dorian standing there holding the door.  I got up and turned towards the lingering crowd and gave a flourishing bow.  I couldn't make out what anyone inparticular was saying but I heard a few girls giggling.  I headed for the door and the caphony of voices rose.  Dorian held the door for me and we stepped back inside the quiet of the empty stairwell.
 
-Dorian grabbed my wrists and pushed me up against the wall and kissed me with passion, so much passion it almost hurt.## Always the Same
+Dorian grabbed my wrists and pushed me up against the wall and kissed me with passion, so much passion it almost hurt.
+
+## Always the Same
 
 Dorian's lips pressed against mine.  I could feel his body pressed against me.  His teeth grazed my lips and our tongues entwined.  Time fled me as I was embraced in the warmth and comfort of that kiss unable to do anything else not that I wanted to anyway.  Dorian pulled away and pressed his forehead against mine and I stared into his deep blue eyes - my heart racing for all the right reasons for a change.  Dorian whispered, "I wanted to do that then."
 
@@ -2416,7 +2448,9 @@ I nodded.  "Only way I can eat what I need to."
 
 "I suppose I am.  It's an OCPD thing.  Change is anxiety ridden.  I schedule just about everything.  Almost."  I smiled at him.  "It's hard to be spontaneous when you feel the need to have control over everything.  I try and I succeed somedays, but it usually means for the next few days or months I'm gonna be gung-ho about my schedule."
 
-"I'll have to remember that."  Dorian pulled the papers from my laptop bag, helping himself to my personal possessions it seemed.  ## Incomplete Puzzles
+"I'll have to remember that."  Dorian pulled the papers from my laptop bag, helping himself to my personal possessions it seemed.  
+
+## Incomplete Puzzles
 
 I watched him set the laptop up and fire it up without a problem until the password screen flashed on.  He looked to me and waited for me to type it in.  I handed Dorian a card and pointed to a set of words on it.  "All lowercase no spaces."
 
@@ -2544,6 +2578,8 @@ Dorian asked, "Might?  There is no might in this equation Nox."
 I smiled.  "You are enough Dorian.  Always enough. More than enough."
 
 He kissed me in the hallway. It was long and passionate and I know I felt at least one person brush my back as they hurried past us.  We pulled apart breathless and smiling and started back down the path we were to the gym holding hands.  The silence wasn't awkward.  The looks we received made Dorian tense until they were behind us.  No one said anything.  No one stopped us to tell us how wrong this was.  Men with men didn't happen often in the Venatori but it did happen - ironically women with women happened more often.  But I felt happy - happier than I had ever felt in my life.
+
+
 ## Accidents Happen
 
 We went the long way to the gym.  I'm not sure if Dorian was prolonging it or if he was just letting me wander, but it doesn't really matter.  I stopped at the door to the gym and stepped aside as someone was exiting.  Dorian kissed me good-bye there were no words just the soft press of his lips and his teeth biting softly into my lip before he parted with a wink.  "Remember stop by when you are done."
@@ -2642,6 +2678,8 @@ Dorian smiled.  "You have a habit of saving my life, you know that?"
 "It's worth it."  I grinned at him.  I was feeling sleepy.  
 
 Dorian started humming softlyand I started to sink deeper into sleep.  I started to ask what they did to me but I was gone before the first word hit my mouth, but I could hear the soft melody I had hummed to Dorian earlier and between that and the soft scent of vanilla and cinaomon I drifted off into a near dreamless sleep.
+
+
 ## All The Peices
 
 I didn't wake from a normal dream.  I was breathing hard and my heart was racing but in a good way and I well... you don't need to hear that.  I opened my eyes and found that I was a lone in the room.  I didn't know how long I had slept or what they'd given me to do so.  I sat up and found the IV still in my arm that had caused me to pass out so easily.  I pulled the needle from my arm in a less than ceremonious way. The liquid oozed out and I had to put pressure on the hole in my arm before it quickly closes off.  At least that was a good thing, I was kinda healing.  
@@ -2832,7 +2870,9 @@ I nodded, "Fuck me!"
 
 Jace laughed, "Don't mind if I do."
 
-I shook my head.  "I gotta go find someone."## The Chase
+I shook my head.  "I gotta go find someone."
+
+## The Chase
 
 Jace was looking at me with curiousity but he didn't try to stop me when I tried to get up out of the bed I was staying in.  I could feel the weakness in my knees but I managed to stand without too much wobbling.  Jace never once attempted to stop me.  This time no buzzing went off.  I was not connected to any monitors as long as I ate they didn't care about me.
 
@@ -2902,7 +2942,9 @@ Stupid villians always spouting their egotistical plans.  I let him continue spe
 
 Levi turned and ran towards the edge.  I followed.  He jumped and soared over the edge tucking himself into a ball to increase speed.  But he didn't spread any elements, he plummeted down faster than I'd ever dared.  I thought as quickly as I could and I sped down in his direction the same way, softening the ground as I did, I had wings of air ready for the moment I caught the stupid boy.  
 
-When my body rammed into his I finished the pattern but there was only a few more seconds of falling before we rammed our selves into the ground - no matter how soft it was it was going to hurt like hell.  I thickened my wings and tried to slow us further but it wasn't enough.  I felt my body shatter on impact and then there was nothing but darkness...# Part II: Terror
+When my body rammed into his I finished the pattern but there was only a few more seconds of falling before we rammed our selves into the ground - no matter how soft it was it was going to hurt like hell.  I thickened my wings and tried to slow us further but it wasn't enough.  I felt my body shatter on impact and then there was nothing but darkness...
+
+# Part II: Terror
 
 ## Rise and Fall of Nightmares
 
@@ -3062,7 +3104,9 @@ I looked down.  "I'm sorry."
 
 Margo put her hand on my shoulder and I had the urge to jerk it away but I hurt just rolling over so I didn't bother.  "Two more doctors and you can see Dorian."
 
-"Such generoisity."## Doctors
+"Such generoisity."
+
+## Doctors
 
 Margo left the room and I could feel the tears rolling down my cheeks.  I had been delibrately mean.  I wanted to apologize more than I already had, but she was gone.  A new set of footsteps followed her wake.  I could tell by the smel of his cologne that he was older and male. 
 
@@ -3230,7 +3274,9 @@ I frowned despite the smile that played on Dorian's face.  "Move over."  Then he
 
 I nodded and moved slowly to one side of the bed.  Dorian laid down on his side next to me draping an arm over my stomach, the added weight hurt a little, but I wasn't about to make him move it.  He settled in next to him his head against the pillow and I leaned in against him.  "I am not ruining anything by the way - my image.  I'm just adding you to it.  Now sleep."
 
-I closed my eyes and leaned my head agaisnt Dorian's chest.  It wasn't quite comfortable but I was soon drifting alone in the darkness the only thing dancing in front of me was images of Dorian.  He hummed softly and I could smell his soft sweet scent and I felt safe as I let oblivion take me into the depths of my own darkness.## Relocation
+I closed my eyes and leaned my head agaisnt Dorian's chest.  It wasn't quite comfortable but I was soon drifting alone in the darkness the only thing dancing in front of me was images of Dorian.  He hummed softly and I could smell his soft sweet scent and I felt safe as I let oblivion take me into the depths of my own darkness.
+
+## Relocation
 
 I woke feeling slightly more rested but there was pain still everywhere.  I woke to Dorian's shallow breathing of sleep.  His arm still draped over my body.  I shifted uncomfortablly and he stirred.  He smiled down at me, "Hey."
 
@@ -3364,7 +3410,9 @@ I interrupted.  "Dorian.  You make him sound old, he's your age."
 
 Madision nodded.  "Dorian is welcome to join us while we settle you in.  But he will have to follow policy and only join you during visiting hours from here on out.  If you could sign here."
 
-I sighed and signed the dotted line - willingly submitting myself to the pschye ward for sucide watch.  It was the only way I was going to be able to see anyone other than my nurses and doctors and I truly didn't want to miss out on Dorian.## Confessions
+I sighed and signed the dotted line - willingly submitting myself to the pschye ward for sucide watch.  It was the only way I was going to be able to see anyone other than my nurses and doctors and I truly didn't want to miss out on Dorian.
+
+## Confessions
 
 I hated feeling like an invalid, but I couldn't stand more than a few seconds before my knees buckled so Madison had a wheelchair waiting.  She pushed me while an orderly followed with my things which at the moment consisted of mostly paper bags full of food Dorian and Mia had brought me.  Dorian walked beside me.  I wanted to hold his hand, well I wanted to do more than that but it was uncomfortable to move so I kept m hands to myself.  Even sitting in the chair was painful.  Had I really broken every bone in my body?  I remember the pain I felt on inpact, it didn't surprise me really, but every bone?  It did feel like it though.
 
@@ -3503,7 +3551,9 @@ I smiled weakly at him, "Because my feelings are so strong for you that I would 
 
 Dorian's hands reached around my neck and he pulled me forward and kissed me.  My heart raced and my body ached for him.  When he pulled away he smiled.  "I will do my best not to hurt you, Nox.  I can't promise you I will succeed because relationships aren't something I'm good at.  And certainly, I'm not good at being in this place in a relationship where I have never been before either."
 
-I smiled, "We'll learn together."## Little Blue Pills
+I smiled, "We'll learn together."
+
+## Little Blue Pills
 
 I ate more than my fill and there was still enough food for later. Dorian even ate some.  I was tired but I didn't want to sleep while I only had a few hours of time to spend with Dorian.  Which he convinced me I had to do my hair.  He trimmed it carefully.  I didn't like being the complete center of his focus but then I didn't want it anywhere else either.  It felt strange having Dorian fussing over me like a child.  It took all my effort not to feel like I needed to smart off to him or to be rebelious against his instructions.  
 
@@ -3629,7 +3679,9 @@ I shrugged.  "She's real to Cliff.  We all see things a little differently.  May
 
 Lori giggled and handed me her plate.  I looked at it with disdain but I ate it anyway.  I was going to pay for this later.  I could feel the carbs sitting on my hips.  Duke laughed, "He's eating like a horse.  How do you stay so thin?"
 
-"I don't normally eat this much, but my body needs healing fuel.  I did a number on myself before the jump, now it's worse."  I said and I hoped that's all it was.  My body just healing I didn't want to keep eating this much forever.  I felt like the Flash in the comics always hungry and always eating.## The Little Werewolf
+"I don't normally eat this much, but my body needs healing fuel.  I did a number on myself before the jump, now it's worse."  I said and I hoped that's all it was.  My body just healing I didn't want to keep eating this much forever.  I felt like the Flash in the comics always hungry and always eating.
+
+## The Little Werewolf
 
 Lunch, dinner, whatever it was was over sooner rather than later and Duke rolled me into the common area with the rest of their group.  He said as he pushed me, "We have arts and crafts today."
 
@@ -3763,7 +3815,9 @@ I nodded.  "So you don't know you are a werewolf then?"
 
 "Actually it's all very real.  I'm a Magnus.  You are a werewolf.  Most of the people here aren't overly special except they are Venatori not human.  There are a few exceptions like yourself."
 
-"I don't believe you."  She rolled her eyes and walked out of the room leaving me to my self in the darkness of my room.## Dreaming of Dorian
+"I don't believe you."  She rolled her eyes and walked out of the room leaving me to my self in the darkness of my room.
+
+## Dreaming of Dorian
 
 I laid down on my new bed and found it wasn't as bad as I expected it to be.  It wasn't a cot so it really was better than what I slept on while out in the field.  My body hurt.  My stomach ached with hunger pains but the left over food Dorian and Mia had brought me was on the other side of the room and I didn't feel like calling a nurse in so I could eat yet again.
 
@@ -3871,6 +3925,8 @@ Jo stood in the doorway and stepped aside as Dorian left.  "He's cute."
 
 I sat down on the bed and waved her in, "He's more than cute Duckling."  Jo sat down next to me on the bed which was a bit of a surprise, "What's up?"
 
+
+
 ## Father and Sons
 
 Jo stared off at the wall in front of her before she finally said something.  "I'm sorry about last night."
@@ -3973,7 +4029,9 @@ Kai nodded.  "That sounds like a plan.  I'll schedule that in too."
 
 I grinned.  "You are getting the idea."
 
-Kai shook my hand and I stepped into my room to grab a change of clothes before heading down to the showers.## Confessions
+Kai shook my hand and I stepped into my room to grab a change of clothes before heading down to the showers.
+
+## Confessions
 
 My days in the ward drew closer together, I forgot from one day to the next what day of the week it was.  Everything was perfectly scheduled, it was probably the most at peace I'd been in the past ten years.  I knew exactly where I was supposed to be and when.  
 
@@ -4131,7 +4189,9 @@ There was a slight flush in the woman before me as she continued.  "The pills yo
 
 Dr. Wilton stared at her with a slack jaw and I could see Margo ready to say something.  I stood up and reached for the door then looked at Margo.  "You will get me out of here, now."  I turned to the woman before me.  "If you don't allow Margo to sign me out of here, I will leave.  And there is nothing you can do to stop me.  I am not some guinea pig you can run experiments on.  I will see your liscense abolished."
 
-I opened the door and slammed it behind me.  I heard a painting crash to the floor but I didn't stop walking.## One Last Night
+I opened the door and slammed it behind me.  I heard a painting crash to the floor but I didn't stop walking.
+
+## One Last Night
 
 I walked the cooridors of the pschye ward for about an hour before I found myself walking past a room just as a peircing scream let lose and a large crash followed by a scrambling orderly running out of the room.  I caught the door before it latched closed and found Jo cowering in a corner.
 
@@ -4243,7 +4303,9 @@ I nodded.  As we walked out Dae'lin joined us and I asked, "Can you get me the n
 
 Dae'lin nodded.  "I'll email the list to you."
 
-We stopped at the front desk while Dae'lin kept on going.  I was handed yet another stack of papers to carry out.  Which Dorian took from my hands  so he could hold my hand as we exited the phschye ward and headed to Margo's office a few floors down.## You Did What?
+We stopped at the front desk while Dae'lin kept on going.  I was handed yet another stack of papers to carry out.  Which Dorian took from my hands  so he could hold my hand as we exited the phschye ward and headed to Margo's office a few floors down.
+
+## You Did What?
 
 We had to wait for Margo's current appointment to finish so Dorian and I sat in her office waiting room.  It as always was filled with the soft comforting scent of apples.  I leaned against Dorian taking in both comforting scents and closed my eyes while we waited.  Dorian shifted and I sat forward and looked at him.  He seemed to be thinking about something.
 
@@ -4395,7 +4457,9 @@ She nodded. "Yep.  9:30am still on the books Nox."
 
 "See ya next Monday then."
 
-We left the Infirmary levels and headed for my new digs.## Dinner with Dorian
+We left the Infirmary levels and headed for my new digs.
+
+## Dinner with Dorian
 
 We took the stairs.  I stopped on the landing where my new room was and opened the door for Dorian.  I grinned at him.  "I can open doors for you too."
 
@@ -4530,6 +4594,8 @@ I said, "Let's go as I unfurled my arms from the bindings of Dorian's making."
 
 He frowned,  "We'll be right there Stella."
 
+
+
 ## Fire Starter
 
 I pulled on the orange t-shirt over my head as Dorian pulled a clean white one from his drawer.  I grinned at him as his tattoo'd arm was showing and I'd never seen him in anything other than dress clothes.  I bit my bottom lip and Dorian chuckled softly, "That's not helping any."
@@ -4658,7 +4724,9 @@ Dorian nodded.  "My thoughts exactly."
 
 I stepped back and watched Dorian open his door and step inside. "Tomorrow love."
 
-Dorian closed the door and I went to my room, which didn't have a bed but I'd slept in worse places before.## Little Lessons
+Dorian closed the door and I went to my room, which didn't have a bed but I'd slept in worse places before.
+
+## Little Lessons
 
 I went back to my empty apartment and rolled out my sleeping bag in what would constitute my bedroom when I actually got a bed installed.  At least it was clean now and I wasn't sceeving out over that fact.  I lay staring at the ceiling counting the stains.  They looked like someone flipped embers at them.  I was going to have to redecorate and that did not sound fun.  
 
@@ -4802,6 +4870,8 @@ Garrett turned around and smiled at me.  "You must come to dinner.  You and I ha
 
 
 
+
+
 ## Punching Bag for Dad
 
 I don't know how long I stood there but I felt a small hand on my leg.  "Can you take me to lunch?"
@@ -4926,7 +4996,9 @@ I wanted to continue what we'd started the night before but I knew Dorian was in
 
 "Of course.  Can I ask with who?"
 
-"Stella and Garrett..."## Pre-Dinner Gitters
+"Stella and Garrett..."
+
+## Pre-Dinner Gitters
 
 I hadn't really thought about it since Drake had asked me to take him to lunch.  Priorities, but now that I was talking about it with Dorian I could feel the pure terror rising up inside.  I whispered, "He told me not to bring you."
 
@@ -5014,7 +5086,9 @@ Dorian steped back with a lust filled look on his face.  "That enough incentive?
 
 I kissed him as I stood up and smiled.  "It is."
 
-I left Dorian's office.  I could feel his eyes on me a I walked towards the elevator.  I winked at him as I turned and the elvator doors closed.## Dinner with the Demon
+I left Dorian's office.  I could feel his eyes on me a I walked towards the elevator.  I winked at him as I turned and the elvator doors closed.
+
+## Dinner with the Demon
 
 I grabbed a shower and put on jeans and a t-shirt with a gray hoodie over it all.  I wanted to spend the night with Dorian, but that wasn't for a few more hours.  I sighed as I headed towards Garrett's apartment.  It was not a far walk really and I was going to arrive around the same time the wine did which would be a good thing.
 
@@ -5131,6 +5205,8 @@ He nodded.  "Did he say why?"
 I turned my head to the side and instead of stopping Dorian sucked on my ear lobe and my neck which made a guttral sound escape my mouth even as I whispered.  "He can.  And I have to listen."
 
 
+
+
 ## That Night and the Next Morning
 
 I pulled Dorian closer to me and  smiled up at him, "But I want to forget that for now."
@@ -5229,7 +5305,9 @@ I nodded.  "Yep."  I turned to his mother with a bright smile.  "It's a pleasure
 
 "Sounds wonderful."
 
-"I will see you at dinner tomorrow night Mother."  Dorian wrapped his arm under mine and headed towards the exit.  "What shall we do?"## Day of Bliss
+"I will see you at dinner tomorrow night Mother."  Dorian wrapped his arm under mine and headed towards the exit.  "What shall we do?"
+
+## Day of Bliss
 
 I could think of a great many things I'd like to do with Dorian that day, but we walked down the stairs hand in hand and out of the AU building int the busy morning streets of New York.  We walked for several blocks without saying anything.  Dorian's hand locked in mine rubbing gentle circles on the back of my hand.
 
@@ -5347,7 +5425,9 @@ Dorian smiled. "You love me?"
 
 I looked down and laughed before I looked up at him with a smile. "You heard that huh?"  I stepped forward put my hands on Dorian's wrists and kissed him softly.  "I love you Dorian."
 
-He was beaming at me as he put his hand on my waist and turned me to walk to the vampire who was paitently waiting for our public display of affection to end.## Frame Up
+He was beaming at me as he put his hand on my waist and turned me to walk to the vampire who was paitently waiting for our public display of affection to end.
+
+## Frame Up
 
 Ant was the classi tall, dark and handsome.  His build was that of a weight lifter and his t-shirt didn't quite fit under the leather jacket he wore.  Dorian whispered, "He's cute."
 
@@ -5470,6 +5550,8 @@ Dorian stopped  and took my hands in his.  "But it was number one on your list o
 I smiled at Dorian and nodded.  "I'm aware of that.  I trust you with everything, even my fears Dorian.  I don't suggest it be something we try soon, but yes I'd be willing."
 
 I could see a certain spark in Dorian that hadn't been there before.  I knew he liked to play rough, I guess I didn't think he enjoyed it that much.  
+
+
 ## The Art of Persuasion
 
 Dorian kissed me rather throughly without touching me anywhere else, it was like he didn't want to tempt himself.  I had a sudden surge of butterflies.  I never got butterflies when I was with someone.  Dorian must have sensed something and pulled away and rested his forehead against mine and pulled me close to him and whispered.  "You are much to nice sometimes, Nox.  I won't take advantage of you like that."
@@ -5579,6 +5661,8 @@ Dorian looked at me and nodded.  He smiled back.  "Yes, Mother.  We will stay fo
 Dorlores was already out of the kitching grabbing my hand, "Then come Nox, you can help me."
 
 I looked back at Dorian as his mother dragged me into the kitchen, he smiled and shrugged.  I had no other choice.  "Yes, ma'am."
+
+
 ## More Confessions
 
 I think the absence of my presence called down my father.  I could hear him sqwacking about who I knew vampires and how things had to be different in my head.  It wasn't until Dorian stepped into the kitchen bearing his empty wine glass in hand that I realized it was a bit stressful for Dorian too.
@@ -5697,7 +5781,9 @@ I smiled.  "We can share our bed Dorian.  At least long enough to meet our oblig
 
 Dorian was the same color his mother had turned at the same general comment I'd made to her.  He shook his head.  I got up from the chair I'd been sitting in and pushed Dorian's chest and he laid back, his head propped up on the wall behind him, his hands behind his head, as I sat on his hips and placed my hands under his arm pits and leaned down close enough to kiss him and spoke "We can make this work in all ways Dorian."
 
-Dorian leaned up and caught my bottom lip between his teeth and bit softly and a small moan left my mouth as he kissed me.  Our mouths were the only things we were touching, our tongues dancing inside exploring and eliciting small sounds from one another.  ## Family Dinner Interrupted
+Dorian leaned up and caught my bottom lip between his teeth and bit softly and a small moan left my mouth as he kissed me.  Our mouths were the only things we were touching, our tongues dancing inside exploring and eliciting small sounds from one another.  
+
+## Family Dinner Interrupted
 
 There was a gasp at the door and there was a small giggle.  I looked behind me at the door to see Sahara and her daughter staring at us in the doorway.  Sahara looked angry, but her daughter was covering her mouth to hide her laughter.  I looked down at Dorian and he was bright red.  I laughed softly as I stood back up and moved towards the door and knelt down to the giggling girl and I lent my hand out to her.  "Hi.  I'm Nox."
 
@@ -5837,7 +5923,9 @@ Sahara asked, "Why a public calendar?"
 
 "Because too many people need acess to it.  Only certain people can rearrange it, but it's easier that way.  It makes my life easier.  I'm not big on the surprises.  But we really need to go, not enough time to explain my annoying quirks."
 
-Dorian chuckled and wrapped his arm around my waist, "Until next week family."## The Last Request of the Demon
+Dorian chuckled and wrapped his arm around my waist, "Until next week family."
+
+## The Last Request of the Demon
 
 We left Dorian's parents place and walked the three flights of stairs down to his apartment and went inside where Dorian pulled out a beer out of the fridge and handed it to me.  I grinned at him as I saw the Red Irish label sticking out under his hand.  "Have you been asking about me again?"
 
@@ -5920,6 +6008,8 @@ I sighed.  "I promise whatever happens we'll deal with this together."
 Dorian stood up and offered me a hand and helped me up.  He wiped away my tears with his thumbs and smiled.  "You are at least presentable.  Now go before I follow you."
 
 I followed my orders and I headed to the top floor where Mark Green and Asher Eriksen kept their residences.
+
+
 ## Going To The Big Man
 
 I walked slowly stalling.  I was regretting telling Dorian not to come with me I could use his strength and his calm.  My anxiety was ratching up a notch each floor I walked up the stairs.  I only managed three flights of stairs before I had to stop and catch my breath because I couldn't breathe.
@@ -5993,6 +6083,8 @@ Dorian nipped at my lip and kissed along my jaw to my ear and just below he bit 
 I whispered, "He has a plan.  I don't know what it is, but he's giving me one more night with you.  Let's not waste it on worrying."  I wrapped my legs around Dorian and pushed myself into him as close as our clothes would allow.
 
 Dorian nodded and kissed me; the rest was bliss.
+
+
 
 # Part III: Exiled
 
@@ -6072,7 +6164,9 @@ I only nodded and she sat down on the bench with my bags.  "Why did you do it No
 
 "I had to."  I whispered.  I reached across the table for my backpack and pulled out some of the money at the bottom of my bag and dropped the cost on the table.  "I have to go now.  Thank you."
 
-She looked at the money and as I stood up she snatched it from the table and stuck it in my pocket.  I pulled the money out seeing the note that was placed there earliery today.  I just started walking as I stared at the note.  I put it back into my pocket with the money as the door jingled shut behind me.## Back To the Old Ways
+She looked at the money and as I stood up she snatched it from the table and stuck it in my pocket.  I pulled the money out seeing the note that was placed there earliery today.  I just started walking as I stared at the note.  I put it back into my pocket with the money as the door jingled shut behind me.
+
+## Back To the Old Ways
 
 I caught a train down into a neighborhood I hadn't been in over ten years.  I hoped it was still as I remembered it.  Walking up from the platform brought back memories.  Jace holding my hand as he pulled me up the stairs the first time saying, "You'll love it I know you will."
 
@@ -6162,7 +6256,9 @@ I interrupted, "His name is Dorian."
 
 Gregory nodded and patted the bed.  "You love Dorian.  And you don't do anything half assed, so get your ass in my bed and go to sleep.  Dream of your beau and forget your worries for one night.  I won't let anything happen to you."
 
-I doubted Gregory would be able to protect me from my nightmares but I laid down anyway with a man who was more than happy to be my friend.  Why could I be friends with so many supernatural creatures and hate my own people or them hate me?  ## The Note
+I doubted Gregory would be able to protect me from my nightmares but I laid down anyway with a man who was more than happy to be my friend.  Why could I be friends with so many supernatural creatures and hate my own people or them hate me?  
+
+## The Note
 
 I started awake as usual when I had a nightmare.  The clock on the nightstand next to my head read 8am.  I hadn't slept too long Gregory was still lying next to me, his arm wrapped protectively around my waist.  I unfurled from him and he rolled over with a grumble. "It's too early."
 
@@ -6289,6 +6385,8 @@ Adrian sighed. "There have been rumblings around the supernatural watercooler.  
 Adrian sighed, "Put the New York vamps against the Venatori and those rumblings become actionable.  Nox you need to watch your back."
 
 I shrugged, "I always have to."
+
+
 
 ## The Good Doctor
 
@@ -6461,6 +6559,8 @@ Asher smiled.  "I never doubted it."
 Asher waved over the waitress.  "Let him finish his courses and box mine all to send with him out the back door."
 
 Asher stood up and straightened his coat and tie and offered me his hand.  "It's been a pleasure doing business with you Mr. Setanta.  The paperwork is here in this envelope, the end sum we will pay you and all other contracts needed waiting your signature.  Leave them here and Mindy will get them to me. "  He took a step away from the table.  "Also, Nox, the address to the sperm bank I want you to use is in the folder.  There will be no more contact between us.  Good luck son."
+
+
 ## Falling
 
 I ate two more courses after Asher left me.  The entry was a decadent pasta and shrimp dish I knew would be bad on my figure.  But I hadn't realized how ugh I had been starving myself these past four days.  Desert was a pumpkin sufle that I would have to learn how to make if I ever wanted to eat it again.  And I took the second meal with me.
@@ -6535,6 +6635,8 @@ The next few weeks I saw the same woman who have me the address walk by and drop
 On this particular day I read the note while I ate half a sandwich from one of my viewres.  He stopped by near daily to watch the show. 
 
 The note said meet me and gave me an address.  The note was written on a pamphlet for the CCB.  I had a pretty good feeling this is what I was waiting for.  I left my spot early and walked to the shelter and showered.  I still had a hang up about being dirty on a date even one that could get me killed.
+
+
 
 ## Elena
 
@@ -6669,6 +6771,8 @@ She shook her head and looked at me with horror on her face.  "He will pay, my l
 I offered Elena my hand.  "Dinner?"
 
 Elena took it with a smile and she handed me the card key to my room before we left.
+
+
 ## The Creed of Celestial Beings
 
 As we walked to the hotel restaurant I was surprised when Elena said quietly, "If you are capable of hurting the man who hurt you why have you not yet?"
@@ -6771,6 +6875,8 @@ I shrugged.  "Enough.  Here in New York, I only now Adrian.  In the rockies when
 
 "You have now."
 
+
+
 ## Trouble Brewing
 
 Elena and I chatted through the rest of dinner, though I think most of it was flirting and not so much informative.  She seemed confident that I was going to fit in perfectly.  I wasn't exactly so sure about that.  Like the dinner with Asher she ordered desert - strawberry cheesecake.
@@ -6872,6 +6978,8 @@ I waved Jo in.  She hadn't taken her eyes off of me.  I was in my boxers.  As sh
 I wrapped my arms around her and closed the door.  I could smell the forest on her stronger than usual. "I need to sleep."
 
 Jo took off her shoes and jeans and crawled into next to me and curled up against my body.  It felt good to hold her.  My thoughts drifted to Dorian as I fell asleep.
+
+
 
 ## Going Home
 
@@ -7003,6 +7111,8 @@ I opened the door and offered Elena my other arm which she gratefully took.  And
 
 
 
+
+
 ## A Real Little Boy
 
 We ate breakfast at a McDonald's, that was a first for me.  I let Jo order for me since none of it sounded apetizing at all.  And I had been right, I didn't like it.  
@@ -7099,7 +7209,9 @@ Elena left my room with a princess wave and was down the stairs before Emily and
 
 Emily laughed.  "Ironically he's our mechanic.  You will be working for him.  He's getting up there in age and a young strapping man like yourself even with no experience will be a great amount of help.  And he'll teach you a thing or two."
 
-"I look forward to it."  I was starting to feel like a real little boy - I wondered if Pinocchio felt like this when he was turned into flesh.## A New Life
+"I look forward to it."  I was starting to feel like a real little boy - I wondered if Pinocchio felt like this when he was turned into flesh.
+
+## A New Life
 
 Emily walked with me three blocks to an garage that looked like it had better days.  There were several cars parked outside and all of the bays were full.  There was a high priced looking woman yelling at an balding man with thin gray hair and glasses.  He looked like he was tired of listening.  
 
@@ -7219,6 +7331,8 @@ Betty nodded and I left her to her work and I went into the parts room and sighe
 
 But this was my new life.  I could get used to it. 
 
+
+
 ## Rogue Wolf
 
 The rest of the day Auto showed me around and taught me how to use the computer system for inventory.   That night I made dinner for the entire clan. It was the first time I cooked for so many people. Elena was there early and watched as I learned my way around the incredible kitchen and made chicken florentine with a toss salad.  
@@ -7297,6 +7411,8 @@ Jo's hand slipped into mine as she joined us.
 
 "Keep up then."  I really didn't have any doubts that they would, but they were werwolves after all, and I only had human speed.  
 
+
+
 ## Jumping the Ambush
 
 Raf pretty much refused to leave my side the entire morning.  He helped me make breakfast and cleaned everything up for me.  As I was finishing the last of my coffee I said to Raf, "You don't have to follow me around. You have a life, I have a life and where I'm going next you can't come with me.  You are a kid, and this is dangerous."
@@ -7372,6 +7488,8 @@ Kai threw a fireball which I let stop inches from my face with a wall of air.  "
 "I finally call you Dad and you don't like it.  How ironic."  Kai threw more fireballs at me. Emilio tried to pull him up the stairs, but he shrugged his best friend off as the flames battered my shield of air.  I could feel the wall failing, the heat burning at my skin.  The next three balls of fire came at me with rapid succession.  One, the wall weakened to near collapse, the second and it fell without warning as the third one explode against my chest and everything caught instanteously on fire.  
 
 I could hear the roar of the flames in my ears, I could feel the searing of my lungs as I took a breath and tried to scream.  Through the flames I saw my father fall to his knees in despair.  I could hear his scream of pain mingling with my own.  The pain was like nothing I had ever felt.
+
+
 ## Phoenix
 
 There was nothing but flames and the pain.  I must have blacked out at some point because I woke up in the pack bed with Jo and Raf curled around me.  I knew someone else was there, but I didn't know who.  I sat up and felt my skin stretch as the newborn skin was taunt, it wasn't painful.  As a matter of fact there was no pain at all, just the presence tickling in the shadows.  
@@ -7445,6 +7563,8 @@ His phone beeped.  "That's Ant.  I have to go love."
 Dorian gave me one last kiss and smiled.  "Don't move on, Nox.  When it's over, all over, find me.  Tell me you love me and I will remember."
 
 I nodded and watched Dorian leave my bedroom.  It felt like a hole being ripped through my heart.  I sat on my bed and I could feel the anxiety racing.  It wasn't long before Jo and Raf were helping me lie down and curling around me in my bed, it was barely big enough for me, much less three grown people, but somehow it worked and I drifted to sleep in a tangle of limbs thinking that I was going to drown in my sorrow.
+
+
 
 
 
@@ -7541,6 +7661,8 @@ That was enough for him to go full bore on me.  He swung and I blocked.  He repe
 We traded blows for a while before a bell sounded and he reached across the ring with an outstreched hand, he was panting with the exertion and so was I.  "Hi, I'm James Wright.  It's very good to meet you Nox."
 
 I smiled.  He was more than Alpha, he was **the** Alpha.
+
+
 ## Gaining Traction
 
 James asked me to come with him and so I followed.  No one looked concerned.  I shouldn't have been, but I felt something - maybe it was nerves.  This was the guy everyone I currently knew listened to.  
@@ -7660,6 +7782,8 @@ James smiled.  "Then 6pm, we shall see what the young Alpha has in store for us.
 
 
 
+
+
 ## Moonlight Battle
 
 I walked out of the locker room and everyone gave me a wide bearth as I headed for the door.  Raf and Jo followed at my heels.  It was like having two little love sick puppies.  But I was glad for the company.  
@@ -7747,6 +7871,8 @@ James laughed.  "Not what I was expecting.  Are there anymore challenges?"  No o
 James clapped his arm around me and lead me up the stairs.  "And none of your followers changed when they lost Paul's connection.  You have impressed me young one."  He sat me down at the bar where Emily was crying softly into Michael's arms.  "Emily, your husband died honorably.  There is nothing to cry over.  Feed your Alpha I'm sure he's starving."
 
 "Yes, James."
+
+
 
 ## Overheard Quarrels
 
@@ -7838,7 +7964,9 @@ She sat up and kissed my cheek.  "Yes.  I will be right down, I think we will al
 
 "Anytime Emily."
 
-I had too much on my mind to really think about what I overheard.   All these knew presenses in my head were distracting.  But for the first time without Dorian the others in my mind kept the nightmares at bay.  At least my usual ones.  I still had nightmares, or someone did, I wasn't sure if they were mine or not.## Leader of the Pack
+I had too much on my mind to really think about what I overheard.   All these knew presenses in my head were distracting.  But for the first time without Dorian the others in my mind kept the nightmares at bay.  At least my usual ones.  I still had nightmares, or someone did, I wasn't sure if they were mine or not.
+
+## Leader of the Pack
 
 The Shaffer family and Bret's son, Jordan, slept with Raf, Jo and myself that night, all curled around each other in what I can only describe as a puppy pile.  It was my first non-demon related nightmare I'd had in a long time and I wasn't the only one waking from it, Jordan was sitting wide eyed in the darkness and I pulled him on top of me to soothe his fears.  I don't know if it was his nightmare or mine, but I suspected it was his.
 
@@ -7915,6 +8043,8 @@ Elena snorted, "If you ever die..."
 I grined at her, "Yes, there is that.  If you think the pack will be alright with it, I'll bring it up at the next moon."
 
 "You are growing into such a leader, Nox."  Elena squeezed my hand as she left Isabel and I together.  We were off to see about a few orphans that had been seen in Central Park that were thought to be were's of some sort but no one could get close enough to the feral children. So Isabel and I were going to try.
+
+
 
 
 ## Children
@@ -8001,7 +8131,9 @@ When no one answered I walked through carrying the little boy and the other foll
 
 Emily stepped out of the kitchen with a surprised look on her face.  She took in the dirty children and wisked them away like any mother would.  I turned back to James, "I assume you are here for me?"
 
-He nodded. "In private."## Direct Course of Action
+He nodded. "In private."
+
+## Direct Course of Action
 
 Isabel kissed my check and I followed James into what had become my office after Paul's passing.  It was the pack leader's office but it remained very much Paul's for the moment.
 
@@ -8077,7 +8209,9 @@ I waved my phone.  "They can take care of themselves.  We need to speak to Elena
 
 "Bring her to my office.  I'll be there in a few moments."
 
-I knew what I had to do, and I would save both families if I could.  But I would at least die trying.  I sent one last text before heading to the office where the two women would meet me.## A Quicky
+I knew what I had to do, and I would save both families if I could.  But I would at least die trying.  I sent one last text before heading to the office where the two women would meet me.
+
+## A Quicky
 
 Both Elena and Isabel were talking loudly in the office when I entered.  They both turned to see who had interrupted their discussion and they both relaxed visibly.  "Nox you aren't going to do something stupid are you?"  Elena asked.
 
@@ -8141,7 +8275,9 @@ Isabel laughed, "I bet he'd even like that."
 
 I stuck my tongue out at her and she smiled.  Elena nodded.  "It is my pleasure to know you Nox.  And even a greater pleasure to stand by your side."
 
-Isabel and I were given privacy which we took advantage of the newly formed bond. The magic involved in the mating ceremony lingered with us and a child would take root, or so the legend said.## Taking a Stand
+Isabel and I were given privacy which we took advantage of the newly formed bond. The magic involved in the mating ceremony lingered with us and a child would take root, or so the legend said.
+
+## Taking a Stand
 
 I woke as usual with nightmares this time I was looking at my own death and how many people it would affect.  Isabel was wrapped around me, both of us still naked from our romantic wedding.  I unfurled from her and pulled on a pair of boxers and jeans before leaving to go outside to the garden.  My phone beeped with a text message and I looked down to see the word 'move'.  I took a side step and in the shadows Il Cane presented herself among the rose bushes.  
 
@@ -8239,6 +8375,8 @@ The pack rallied with me giving me the strength to push back.  James didn't move
 
 There was nothing but silence in the rec room as the magic that bound James to every being under the CCB umbrella fell to me.
 
+
+
 ## Unexpected Challenge
 
 The magic finished washing over everyone and I was still lying in a pool of blood and covered in brain matter.  My wounds were healing slowly as the werewolf venom still coursed through my veins.  People slowly came to form a circle around me.  Jo and Raf were kneeling beside me trying to help me up.  Isabel stood standing above me with a huge smile on her face.  Elena was leaning against her still greiving her husband, but she was smiling proudly at me.  
@@ -8311,7 +8449,9 @@ I raised my voice so those around the ring of guards can hear me.  "Remove the b
 
 The members of the CCB all nodded a head and stepped sideways around the remaining Venatori.  "I want to go home."  I looked at Isabel.  She smiled and looked to Dorian and Anabel. "Dorian, Anabel, will you join us?"
 
-Dorian looked to Anabel and she nodded, but Dorian answered with a smiled, "Our pleasure."## Epilogue
+Dorian looked to Anabel and she nodded, but Dorian answered with a smiled, "Our pleasure."
+
+## Epilogue
 
 I grabbed a shower the moment I got home to the pack house.  The house was packed when I stepped into the gathering areas of the house.  Elena was the first to spot me and waved me over.  I wrapped my arms around her and gave her a hug and whispered in her ear, "I'm sorry about Charles."
 
@@ -8406,3 +8546,4 @@ Dorian nodded his ascent.  We all looked to Anabel.
 I smiled, "You are the mother of an Ascendant - the first of her kind."
 
 Anabel nodded and I smiled at her, "And then we begin."
+
