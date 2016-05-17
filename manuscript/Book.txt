@@ -63,3 +63,4 @@
 063-moonlight-battle.md
 064-overheard-quarrels.md
 065-leader-of-the-pack.md
+066-children.md
