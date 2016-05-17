@@ -74,4 +74,4 @@ I waved my phone.  "They can take care of themselves.  We need to speak to Elena
 
 "Bring her to my office.  I'll be there in a few moments."
 
-I knew what I had to do, and I would save both families if I could.  But I would at least die trying.
+I knew what I had to do, and I would save both families if I could.  But I would at least die trying.  I sent one last text before heading to the office where the two women would meet me.
