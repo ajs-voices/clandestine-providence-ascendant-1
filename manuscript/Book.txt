@@ -67,3 +67,4 @@
 067-direct-course-of-action.md
 068-a-quicky.md
 069-taking-a-stand.md
+070-unexpected-challenge.md
