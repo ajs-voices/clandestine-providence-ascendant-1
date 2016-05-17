@@ -65,4 +65,5 @@
 065-leader-of-the-pack.md
 066-children.md
 067-direct-course-of-action.md
-068-a-quicky-md
+068-a-quicky.md
+069-taking-a-stand.md
