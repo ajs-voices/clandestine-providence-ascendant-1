@@ -1,6 +1,6 @@
 ## Leader of the Pack
 
-The Shaffer family and Bret's son, Jordan slept with Raf, Jo and myself that night, all curled around each other in what I can only describe as a puppy pile.  It was my first non-demon related nightmare I'd had in a long time and I wasn't the only one waking from it, Jordan was sitting wide eyed in the darkness and I pulled him on top of me to soothe his fears.  I don't know if it was his nightmare or mine, but I suspected it was his.
+The Shaffer family and Bret's son, Jordan, slept with Raf, Jo and myself that night, all curled around each other in what I can only describe as a puppy pile.  It was my first non-demon related nightmare I'd had in a long time and I wasn't the only one waking from it, Jordan was sitting wide eyed in the darkness and I pulled him on top of me to soothe his fears.  I don't know if it was his nightmare or mine, but I suspected it was his.
 
 Elena came by early and had breakfast with us.  She walked with me to Auto's garage where I found the old man sitting down in Betty's desk looking over my schedule.  He smiled once he saw me.  "You are going to have to adjust this schedule of yours.  There are things you need to do at specific times."
 
@@ -16,25 +16,25 @@ Elena laughed, "Minimum, that's going to be hard, Nox.  This life is not some st
 
 "I know.  It wasn't in the field either, but I managed.  At least now, unlike in the field, I have people supporting me full time."  I squeezed her hand, "And for that I'm grateful."
 
-For the next month I learned all about the pack.  I met every single member in my metaphyscial connection on an intamate level.  Elena insisted that I have dinner with everyone no matter their age.  So everyone came to the pack house, and we talked while I made dinner for two and then we ate in the privacy of the kitchen while everyone else had whatever Emily cooked that night.  There was some grumbling as I wasn't cooking for them too but Emily told them things would return to normal when the introductions were done.  I even had dinner with the newest member of the pack, a three month old name Aaron.
+For the next few months I learned all about the pack.  I met every single member in my metaphyscial connection on an intamate level.  Elena insisted that I have dinner with everyone no matter their age.  So everyone came to the pack house, and we talked while I made dinner for two and then we ate in the privacy of the kitchen while everyone else had whatever Emily cooked that night.  There was some grumbling as I wasn't cooking for them too but Emily told them things would return to normal when the introductions were done.  I even had dinner with the newest member of the pack, a three month old name Aaron.
 
 There were only a few young men in the pack that were going to cause me grief and mostly because they were homophobes.  The first thing out of one of their mouths before they sat down at the bar with me was I don't suck cock.  
 
 I laughed and replied.  "I didn't ask you to.  And if that is the first thing you think of when you say I'm gay then you truly are a little delusional.  I like cock and prefer it in other orafices."
 
-He gave me a gruttal cry of disbelief that I would be so bold.  I washed my hands of the hamburger I'd been kneeding at offered.  "Let's start over.   My name is Nox.  You must be Harvey. "
+He gave me a gruttal cry of disbelief that I would be so bold.  I washed my hands of the hamburger I'd been kneeding at and offered, "Let's start over.   My name is Nox.  You must be Harvey. "
 
 He took my hand and shook too firmly trying to show how tough he was. I gave as good as I got.
 
-Elena and Auto sat with me every night teaching me the hierarchy of this pack and other packs in the city and in relation to the country.  They also instructed me in the overall politics of the CCB.  Helping navigate the pitfalls of most pack leaders.   The fact that I knew vampires personally helped a great deal.  
+Elena and Auto sat with me every night teaching me the hierarchy of this pack and other packs in the City and in relation to the whole country.  They also instructed me in the overall politics of the CCB.  Helping navigate the pitfalls of most pack leaders.   The fact that I knew vampires personally helped a great deal.  
 
 I had pack leader meetings to attend every week and I was invited to attend officers meetings where James asked me about the Venatori. I gave them what wouldn't hurt my family and friends.  But the more time went on the less I felt the need to project anyone other than Dorian.  I missed him a lot. I had a feeling I was going to miss him a lot for a long time. 
 
-Nothing James asked me worried me not even with the thought that they had plans to do damage to the building. That worried me more the longer I saw the hatred for the Venatori. But I hadn't heard anything about any plans. 
+Nothing James asked me worried me not even with the thought that they had plans to do damage to the building. That worried me more the longer I saw the hatred for the Venatori. But I hadn't heard anything about any plans. But I kept listening anyway.  Some one, some where wanted Mark Green dead.
 
 Elena had been true to her word and was setting me up with women from inside my pack, and others from outside. There was Tiffany who was a blonde bombshell but with the brains of a peanut.  Even Elena rejected her once she opened her mouth.
 
-Sandra was a pretty little brunette, but she was much too butch for my tastes, her hair was cropped short, she had more muscle than I ever would, and she liked women.  She figured since I liked men it would be a good match.  I informered her I liked women and she sneered at me with a disgust that some homosexals had against bi's, they beleived that we should choose a side.  She was rejected on that fundamental disagreement.
+Sandra was a pretty little brunette, but she was much too butch for my tastes, her hair was cropped short, she had more muscle than I ever would, and she liked women.  She figured since I liked men it would be a good match.  I informered her I liked women and she sneered at me with a disgust that some people had against bis. They beleived that we should choose a side.  She was rejected on that fundamental disagreement.
 
 Allison was not pretty in the sense that she a good looking woman.  With a little work she could be be drop dead gorgeous but she chose to wear her hair long and straight or in a pony tail.  Her glasses were several seasons out of fashion, and her attire was the same.  I didn't mind that she was homely at first glance, actually it was one of the reasons I agreed to see her.  But we didn't get far on that first date.
 
@@ -52,7 +52,7 @@ Elena was happy with the dynamic between Isabel and I.  And she and Auto agreed 
 
 Elena called after me as Isabel and I were leaving the conference room we'd called her father from.  "Nox, darling.  Can we talk?"
 
-I turned and waved my hand as I had other things to take care of.  My life hadn't gotten easier being pack leader it became even busier.  "Without Isabel, sorry dear."
+I turned and waved my hand as I had other things to take care of.  My life hadn't gotten easier being pack leader it became even busier.  "Without Isabel, sorry dear." She said to Isabel with a smile.
 
 I shrugged.  "You know I'll just tell her anyway right?"
 
