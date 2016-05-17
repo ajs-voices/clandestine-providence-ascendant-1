@@ -48,7 +48,7 @@ Anabel nodded, "Later then.  Dorian never turly beleive you'd died.  He had drea
 
 I smiled.  "Ant didn't do a very good job then."
 
-I heard an laugh echo from the shadows at the mention of his name.  "I did perfectly well my friend.  Remember your promise."
+I heard a laugh echo from the shadows at the mention of his name.  "I did perfectly well my friend.  Remember your promise."
 
 "I will come when I'm called Ant, I gave my word I will keep my promise as long as your mother does."
 
@@ -65,3 +65,9 @@ My father scoffed at me, "Who do you think you are issuing me orders.  The counc
 I smiled.  "My dear, dear father, by the Clandestine Providence I am the leader of the Venatori.  I outrank you and every other council member in the Venatori by right and acheivement, unless someone wishes to challenge the law or me you will listen to me."
 
 He stood there in stunned silence his mouth open.  I gave him a level look.  "In my exile I've learned alot about the Clandestine Providence.  And I will make changes."
+
+I raised my voice so those around the ring of guards can hear me.  "Remove the bombs from the AU building and get rid of them and any other plans against the Venatori.  Same goes for you, anymove agains the Venatori is a move against me."
+
+The members of the CCB all nodded a head and stepped sideways around the remaining Venatori.  "I want to go home."  I looked at Isabel.  She smiled and looked to Dorian and Anabel. "Dorian, Anabel, will you join us?"
+
+Dorian looked to Anabel and she nodded, but Dorian answered with a smiled, "Our pleasure."

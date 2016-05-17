@@ -68,3 +68,4 @@
 068-a-quicky.md
 069-taking-a-stand.md
 070-unexpected-challenge.md
+071-epilogue.md
