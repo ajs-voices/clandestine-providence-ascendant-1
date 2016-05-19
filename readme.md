@@ -16,6 +16,6 @@ Scenes 22 - 46
 
 ## Part III: Exiled
 
-Scenes 47 - ?
+Scenes 47 - 71
 
 

@@ -23,7 +23,7 @@
 023-doctors.md
 024-relocation.md
 025-confessions.md
-026-little-blue-pill.md
+026-little-blue-pills.md
 027-the-little-werewolf.md
 028-dreaming-of-dorian.md
 029-father-and-sons.md
