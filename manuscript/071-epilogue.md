@@ -8,7 +8,7 @@ She gave me a weak smile.  "He was a proud man, he died well."
 
 She kissed my cheek and smiled, "It was foretold Nox - from the ashes he will rise."
 
-"I'm not prophecy fullfillment.  I'm just mean.  His death was needless.  It served no purpose.  He was not pack leader, nor leader of anything."
+"I'm not prophecy fullfillment.  I'm just me.  His death was needless.  It served no purpose.  He was not pack leader, nor leader of anything."
 
 Elena smiled, "And Garrett's death, was it needless?  He did the same as Charles stood up for what he beleived in."
 
